@@ -44,11 +44,13 @@ The present work of Swamiji is a real piece of spiritual wealth.
 
 
 
-## The 108 Verses of The Gita, 
+The 108 Verses of The Gita, 
+
+By Swami Bidyananda Giri Maharaj
+
 
 Exact Verses with English Translation and Spiritual Commentaries by Sri Sri Lahiri Mahasaya
 
-By Bidyananda Giri
 
 Paramhansa Yogananda Ashram
 North Lake Road
@@ -59,6 +61,7 @@ Dedicated at the lotus feet of my Gurudeva
 
 Sri Sri Paramhansa Yogananda Giriji Maharaj
 
+---
 
 ### The Greatness of the Gita
 
@@ -145,19 +148,26 @@ You are Vayu, Yama, Agni, Varuna, the Moon; Prajapati and the Great-grandfather.
 
 
 
-                                                       Om Guru
+Om Guru
 
 avināśhi tu tadviddhi yena sarvam idaṁ tatamvināśham avyayasyāsya na kaśhchit kartum arhati
 
-Translation- yena (by whom) idam (this) sarvam (complete world) tatam (pervaded) tat (that) avinasi (imperishable) vinasam (destruction) kartum (to do) na kaschit (no one) arhati (is able)
+Translation: 
+
+yena (by whom) idam (this) sarvam (complete world) tatam (pervaded) tat (that) avinasi (imperishable) vinasam (destruction) kartum (to do) na kaschit (no one) arhati (is able)
+
 That which pervades the entire body should be known to be indestructible. None can destroy the imperishable soul.
 Spiritual commentary: Tat means Kutastha. He is eternal. None can destroy him because he is omnipresent. As everything of this world is from Him, who will kill whom?
- Na jaayate mriyate va kadacit nayam
+
+Na jaayate mriyate va kadacit nayam
 Bhutva bhavita va na bhuyah
 Ajo nityah shashvato’ yam purano na 
 Hanyate hanyamaane sharire. 2 (2/20)
- Translation
+
+Translation
+
 Ayam (this soul) kadachit (at any time) na  (never) jayate (takes birth) va (either) na (never) mriyate (dies) va (or) bhutva (born) bhuyah (again) bhavita (will come to be) ayam( this) ajah (unborn) nityah (eternal changeless one form) sasvatah (permanent) puranah (the oldest) sarire (body) hanymane (being killed) na (not) hanyate (is killed)
+
 For the soul there is neither birth nor death at any time. He has not come into being, does not come into being and will not come into being. He is unborn, eternal, ever existing and primeval. He is not slain when body is slain.
 Spiritual commentary- He is without birth as He is eternal and omnipresent. Where is the space for Him to be born and how can there be death for that which is eternal?
 Everything is Brahma. Then how could there be change from one thing to another? This is not possible. That which is seen is nothing  but visual delusion. All that is manifested is false and will be dissolved in the Brahma.
