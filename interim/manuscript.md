@@ -1181,265 +1181,290 @@ Those who follow this path of devotion and who completely engage themselves with
 Practice of Kriya without desires is true spirituality. By virtue of such practice, one attains immortality.
 
 Whoever will practice Kriya and hold on to the transcendental state will realise that the Self is the ultimate goal. Having received kriya from the Guru, if you practice it with faith and devotion, you will be automatically absorbed in the supreme state of eternal Bliss. Therefore, whoever, wants to attain absolute knowledge of the Ultimate Self, must practice kriya.
-Brahma-bhutah prasannatma na shochati na kankshati
-Samah sarveshu bhuteshu mad bhaktim labhate paraam
- (18/54)
+
+> Brahma-bhutah prasannatma na shochati na kankshati
+> Samah sarveshu bhuteshu mad bhaktim labhate paraam (18/54)
 
 
 ###### Translation: 
 
-brahma bhutah (being one with the Lord) prasannatma (fully joyful) na shochati (never laments) na (never) kankshati (desires) sarveshu (all) bhuteshu (to beings) samah (equally disposed) param (transcendental) mad bhaktim (devotion to me) labhate (attains)
+brahma bhutah (being one with the Lord) prasannatma (fully joyful) na shochati (never laments) na (never) kankshati (desires) sarveshu (all) bhuteshu (to beings) samah (equally disposed) param (transcendental) mad bhaktim (devotion to me) labhate (attains).
+
 One who is transcendentally situated, realizes the Supreme Brahman and becomes fully joyful. He never laments or desires to have anything. He is equally disposed towards every living entity. In that state he attains pure devotion to Me.
 
 ###### Spiritual commentary: 
 
-When one becomes one with the Ultimate Self, he becomes spontaneously happy as he never looks outward with attachment except the Ultimate Self. With no attachment for any material thing he does not think of anything else. When one looks at a thing with attachment, he develops longing for that thing. When one desires nothing but the Ultimate Self, then he automatically loses all desire. He sees the kutastha, the inner Self, in all movable and immovable things. He realizes all automatically. Believing in the words of the Guru and holding onto the Self, he practices kriya always without the desire for results and considers attainment of the Self to be the supreme achievement.
-Bhaktya mam abhijanaati yavan yah cha asmi tattvatah
-Tato maam tattvato jnatva vishate tadanantaram
- (18/55)
+When one becomes one with the Ultimate Self, he becomes spontaneously happy as he never looks outward with attachment except the Ultimate Self. With no attachment for any material thing he does not think of anything else. When one looks at a thing with attachment, he develops longing for that thing. When one desires nothing but the Ultimate Self, then he automatically loses all desire. 
+
+He sees the kutastha, the inner Self, in all movable and immovable things. He realizes all automatically. Believing in the words of the Guru and holding onto the Self, he practices kriya always without the desire for results and considers attainment of the Self to be the supreme achievement.
+
+> Bhaktya mam abhijanaati yavan yah cha asmi tattvatah
+> Tato maam tattvato jnatva vishate tadanantaram (18/55)
 
 
 ###### Translation: 
 
 bhaktya (by devotion) yavan (as much as) yah cha asmi tattvah (in truth as much as I am) abhijanaati (one can know) tat (there after) maam (Me) tattvato (exactly as I am) jnatva (knowing) tadantaram (there after immediately) vishate (he enters).
-One can understand Me as I am, as the Supreme Personality of Godhead, only by devotion. Thereafter when one is in full consciousness of Me by such devotion, he immediately enters in My kingdom.
+
+One can understand Me as I am, as the Supreme Personality of Godhead, only by devotion. Thereafter, when one is in full consciousness of Me by such devotion, he immediately enters in My kingdom.
 
 ###### Spiritual commentary: 
 
 With devotion he realizes who I am and that I am everything and all beings are My form. Through kriya practice, he realizes the essence of Me and gets dissolved in Me.
-…………
 
-Third Chapter
-Unification with Lord Krishna
 
-Klaibyam ma sma gamah Partha na etat tvayi upapadyate
-Kshudram, hridaya-daurbalyam tyaktvottishtha Parantapa 
- (2/3)
+## Third Chapter
+
+### Unification with Lord Krishna
+
+---
+
+> Klaibyam ma sma gamah Partha na etat tvayi upapadyate
+> Kshudram, hridaya-daurbalyam tyaktvottishtha Parantapa (2/3)
 
 
 ###### Translation: 
 
 Parth (O son of Pandu) klaibyam (impotence) masmagamah (do not take to) na (never) etat (this) tvayi (unto you) upapadyate (is not befitting) Parantapa (O chastiser of enemies) kshudram (petty) hridayadaurbalayam (weakness of heart) tyaktvo (giving up) uttishtha (get up)
+
 O son of Pandu, do not yield to this degrading impotence. It does not become you. Give up such petty weakness of heart and arise, O chastiser of enemies.
 
 ###### Spiritual commentary: 
 
 Like a eunuch you are neither on this side nor on that side. You are neither totally involved in worldy affairs (even the most worldly-minded person thinks of God) nor able to hold on to the self always, as your mind frequently goes to the sense objects. Those who are low minded, who do not like to exert behaves like this. So, shake off this mentality and stay put at the kutastha centre and then you will attain eternal tranquillity.
-Matra-sparshah tu Kaunteya shitoshna-sukha duhkhadah
-Aagmapayino anityah tan titikshava Bharata 
- (2/14)
+
+> Matra-sparshah tu Kaunteya shitoshna-sukha duhkhadah
+> Aagmapayino anityah tan titikshava Bharata (2/14)
 
 
 ###### Translation: 
 
-Kaunteya (O son of Kunti) matra sparshah (sensory perception to only) shita (winter) ushna (summer) sukha (happiness) duhkha (pain) aagama apayino (appearing and disappearing) anityah (impermanent) tan (all of them) titikshasva (just try to tolerate) Bharata (O Bharata)
+Kaunteya (O son of Kunti) matra sparshah (sensory perception to only) shita (winter) ushna (summer) sukha (happiness) duhkha (pain) aagama apayino (appearing and disappearing) anityah (impermanent) tan (all of them) titikshasva (just try to tolerate) Bharata (O Bharata).
+
 O son of Kunti, the non-permanent appearance of happiness and distress and their disappearance are like appearance and disappearance of winter and summer seasons. They arise from sense perception. O scion of Bharata, one must learn to tolerate them without being disturbed.
 
 ###### Spiritual commentary: 
 
-The body is made of five elements, that is, earth, water, fire, air and ether and also of muladhar, svadhishthan, manipur, anahat, vishuddha, akaar, ukaar, makaar, naad and bindu. They exist, dissolve and are experienced by air. Beyond them there is the Kutastha Brahma at ajna centre, where when the air is stilled, soundless sound, bindu, naad and the past are known. These are described in scriptures. There is a kind of joy which is known as Supreme Bliss. There is intoxication in this Bliss. So, when one becomes free from the sense perceptions, he becomes free from pain and pleasure. So long as one is attached with the senses, so long he will feel happiness and sorrow. Observe that all experiences are due to sense perceptions.
-Svadharman api chavekshya na vikampitum arhasi
-Dharmyat hi yuddhat shreyah anyat kshatriyasya na vidyate
- (2/31)
+The body is made of five elements, that is, earth, water, fire, air and ether and also of muladhar, svadhishthan, manipur, anahat, vishuddha, akaar, ukaar, makaar, naad and bindu. They exist, dissolve and are experienced by air. Beyond them there is the Kutastha Brahma at ajna centre, where when the air is stilled, soundless sound, bindu, naad and the past are known. 
+
+These are described in scriptures. There is a kind of joy which is known as Supreme Bliss. There is intoxication in this Bliss. So, when one becomes free from the sense perceptions, he becomes free from pain and pleasure. So long as one is attached with the senses, so long he will feel happiness and sorrow. Observe that all experiences are due to sense perceptions.
+
+> Svadharman api chavekshya na vikampitum arhasi
+> Dharmyat hi yuddhat shreyah anyat kshatriyasya na vidyate (2/31)
 
 
 ###### Translation: 
 
-svadharmam (own dharma) api cha (and also) avekshya (looking at) na (not) vikampitum (to waver) arhasi (oughtest) hi (for) dharmayat yuddhat (than a righteous war) 
-Shreyah (good duty) anyat (any other) kshatriyasya (for a ksatriya) na vidyate (exists not)
-Looking at your own Dharma also you ought not to waver, for there is nothing higher for a ksatriya than a righteous war.
+svadharmam (own dharma) api cha (and also) avekshya (looking at) na (not) vikampitum (to waver) arhasi (oughtest) hi (for) dharmayat yuddhat (than a righteous war).
+
+Shreyah (good duty) anyat (any other) kshatriyasya (for a ksatriya) na vidyate (exists not). Looking at your own Dharma also you ought not to waver, for there is nothing higher for a ksatriya than a righteous war.
 
 ###### Spiritual commentary: 
 
 One’s own Dharma is to practice kriya. Have that one aim in life steadfastly. Because for ksatriya (brave sadhak) there is no other Dharma than to practice kriya.
-Sukha-duhkhe same kritva labhalabhau jayajayau
-Tato yuddhaya yujyasva naivam paapam avapsyasi. 
- (2/38)
+
+> Sukha-duhkhe same kritva labhalabhau jayajayau
+> Tato yuddhaya yujyasva naivam paapam avapsyasi. (2/38)
 
 
 ###### Translation: 
 
-sukhadukkhe (happiness and distress) labhalabhau (profit and loss) jayajayau (victory and defeat) same krtva (doing so in equanimity) yuddhaya (for the sake of fighting) yujyasva (get ready) tatah (thereafter) evam (in this way) paapam (sinful reaction) na (not) avapsyasi (you will gain)
+sukhadukkhe (happiness and distress) labhalabhau (profit and loss) jayajayau (victory and defeat) same krtva (doing so in equanimity) yuddhaya (for the sake of fighting) yujyasva (get ready) tatah (thereafter) evam (in this way) paapam (sinful reaction) na (not) avapsyasi (you will gain).
+
 Do thou fight for the sake of fighting without considering happiness or distress, loss of gain, victory or defeat and by so doing you shall never incur sin.
 
 ###### Spiritual commentary: 
 
 Having made pleasure and pain, gain and loss the same, practice kriya. Then you will attain Brahma.
-Yogasthah kuru karmaani sangam tyaktva Dhananjaya
-Siddhi-asiddhyoh samo bhutva samatvam yoga uchyate
- (2/48) 
+
+> Yogasthah kuru karmaani sangam tyaktva Dhananjaya
+> Siddhi-asiddhyoh samo bhutva samatvam yoga uchyate (2/48) 
 
 
 ###### Translation: 
 
-Dhananjaya (O Arjuna) yogasthah (equipoised in yoga) sangam (attachment) tyaktva (giving up) siddhyasiddhyo (in success of failure) samah (equipoised) bhutva (becoming) karmani (your all duties) kuru (perform) samatvam (equanimity) yog (yoga) uchyate (is called)
+Dhananjaya (O Arjuna) yogasthah (equipoised in yoga) sangam (attachment) tyaktva (giving up) siddhyasiddhyo (in success of failure) samah (equipoised) bhutva (becoming) karmani (your all duties) kuru (perform) samatvam (equanimity) yog (yoga) uchyate (is called).
+
 Perform your duties equipoised, O Arjuna, abandoning all attachment to success or failure. Such equanimity is called yoga.
 
 ###### Spiritual commentary: 
 
 Holding on to the after effect poise of kriya, perform all works. Treat success and failure as equal. This is called yoga.
-Buddhiyukto jahatiha ubhe sukrtadushkrite
-tasmad yogaya yujyasva yogah karmasu kaushalam 
- 6 (2/50)
+
+> Buddhiyukto jahatiha ubhe sukrtadushkrite
+> tasmad yogaya yujyasva yogah karmasu kaushalam 6 (2/50)
 
 
 ###### Translation: 
 
-buddhiyuktah (one who is engaged in wisdom) iha (in this life) sukrtaduskrte (good and bad results) ubhe (both) jahaati (can get rid of) tasmat (therefore) yogaya (for the sake of yoga) yujyasva (be so engaged) karmasu ( in all activities) kaushalam (art) yogah (yoga)
+buddhiyuktah (one who is engaged in wisdom) iha (in this life) sukrtaduskrte (good and bad results) ubhe (both) jahaati (can get rid of) tasmat (therefore) yogaya (for the sake of yoga) yujyasva (be so engaged) karmasu ( in all activities) kaushalam (art) yogah (yoga).
+
 A man engaged in wisdom rids himself of both good and bad actions even in this life. Therefore, strive for yoga which is the art of all works.
 
 ###### Spiritual commentary: 
 
 Stay put at the after-effect poise of kriya and give up desire for good or bad actions. Holding on to the after-effect poise of kriya perform all actions. The practice of kriya yoga is quite difficult and technical. For example, you will have to put the eyes on the head and keep the breath at chest and perform all your actions.
-Yatoto hi api Kaunteya purushasya vipashchitah
-Indriyani pramathini haranti prasabham manah 
- (2/60)
+
+> Yatoto hi api Kaunteya purushasya vipashchitah
+> Indriyani pramathini haranti prasabham manah (2/60)
 
 
 ###### Translation: 
 
-Kaunteya (O son of Kunti) hi (certainly) yatatah (while endeavouring) vipashchitah (full of discriminative knowledge) purushasya (of a man) api (in spite of) manah (mind) pramathini (agitating) indriyani (the sense) prasabham (by force) haranti (throw)
+Kaunteya (O son of Kunti) hi (certainly) yatatah (while endeavouring) vipashchitah (full of discriminative knowledge) purushasya (of a man) api (in spite of) manah (mind) pramathini (agitating) indriyani (the sense) prasabham (by force) haranti (throw).
+
 The senses are so strong, O son of Kunti, that they forcibly carry away the mind even of a man who is full of discriminative knowledge and who is endeavouring control them.
 
 ###### Spiritual commentary: 
 
 The senses snatch away the mind of even a disciplined and controlled man.
-Tani sarvaani samyamya yukta asita matparah
-Vashe hi yasya indriyani tasya prajna pratishthita 7 (2/61)
+
+> Tani sarvaani samyamya yukta asita matparah
+> Vashe hi yasya indriyani tasya prajna pratishthita 7 (2/61)
 
 
 ###### Translation: 
 
-tani (those) sarvaani (all senses) samyamya (keeping under control) matparah (in relationship with me) yukta (engaged) asita (should be situated ) hi (certainly) yasya (one whose) indriyani (senses) vashe (in full subjugation) tasya (his) prajna (wisdom consciousness) pratishthita (fixed)
+tani (those) sarvaani (all senses) samyamya (keeping under control) matparah (in relationship with me) yukta (engaged) asita (should be situated ) hi (certainly) yasya (one whose) indriyani (senses) vashe (in full subjugation) tasya (his) prajna (wisdom consciousness) pratishthita (fixed).
+
 One who restrains his senses, keeping them under full control and fixed his consciousness upon Me is known as a man of steady wisdom.
 
 ###### Spiritual commentary: 
 
 He who restrains the senses can hold on to the self and whose senses are under control is established in eternal tranquillity and wisdom.
-Ye yatha mam prapadyante tan tathaiva bhajamyaham
-Mama vartma anuyartante manushyah Partha sarvashah 
- (4/11)
+
+> Ye yatha mam prapadyante tan tathaiva bhajamyaham
+> Mama vartma anuyartante manushyah Partha sarvashah (4/11)
 
 
 ###### Translation: 
 
 Partha (O son of Partha) ye (all who) yatha (as) mam (unto me) prapdyante (worship) tan (them) aham (I) tathaiva (in the same way) bhajami (reward) manushyah  (all men) sarvashah (in all respects) mama (My) vartma (path) anuvartante (follow)
+
 As all men worship Me, I reward them accordingly. Every one follows My path in all respects O son of Partha.
 
 ###### Spiritual commentary: 
 
 I also reciprocate love and care for him who worship Me sincerely. All men follow My path.
 
-Vidya vinaya sampanne braahmane gavi hastini
-Shuni chaiva shvapake cha paditah samadarshinah 
- (5/18)
+> Vidya vinaya sampanne braahmane gavi hastini
+> Shuni chaiva shvapake cha paditah samadarshinah (5/18)
 
 
 ###### Translation: 
 
-panditah (wise men) vidya vinaya sampanne (fully equipped with education and gentleness) brahmane (in brahman) gavi (cow) hastini (elephant) shuni (in dog) shvapake cha (in an out caste) samdarshinah (who see with equal vision)
+panditah (wise men) vidya vinaya sampanne (fully equipped with education and gentleness) brahmane (in brahman) gavi (cow) hastini (elephant) shuni (in dog) shvapake cha (in an out caste) samdarshinah (who see with equal vision).
+
 Wise man who is fully equipped with education and knowledge see with equa vision a brahmana, a cow an elephant, a dog and an outcast dog eater.
 
 ###### Spiritual commentary: 
 
 A realized person will treat a good, learned and polite brahman holding sacred water in a kosa vessel, and an outcast dog eater as equal. At the after effect poise of kriya the realized person like a drunken man, does not make such differences.
-Ihaiva taihi jitah sargah yesham samye sthitam manah
-Nirdosham hi samam brahma tasmad brahmani te sthitah                                                                                      11 (5/19) 
+
+> Ihaiva taihi jitah sargah yesham samye sthitam manah
+> Nirdosham hi samam brahma tasmad brahmani te sthitah 11 (5/19) 
 
 
 ###### Translation: 
 
-yesham (whose) manah (mind) samye (in evenness) sthitam (fixed) iha (in this world) eva (verily) taihi (by them) sargah (existence) jitah (is conquered) hi (indeed) brahma (Brahman) samam (even) nirdosham (without imperfection) tasmat (therefore) te (they) brahmani (in Brahman) sthitah (are established)
+yesham (whose) manah (mind) samye (in evenness) sthitam (fixed) iha (in this world) eva (verily) taihi (by them) sargah (existence) jitah (is conquered) hi (indeed) brahma (Brahman) samam (even) nirdosham (without imperfection) tasmat (therefore) te (they) brahmani (in Brahman) sthitah (are established).
+
 Relative existence has been conquered by them, even in this world, whose mind rests in evenness, since Brahman is even and is without imperfection; therefore they indeed rest in Brahma.
 
 ###### Spiritual commentary: 
 
 He who is poised in equilibrium enjoys happiness in this very world. He has become one with the Brahma. He finds no fault in anybody and is equal to everybody. He is ever established Brahma.
-Sparshan kritva bahir bahyan chakshuh chaivantare bhruvoh
-Pranapanau samau kritva nasabhyantara charinau
- 12 (5/27)
-Yatendriya mano budhih munih moksha parayanah
-Vigateccha-bhaya-krodhah yah sadamuktva eva sah
- 13 (5/28)
+
+> Sparshan kritva bahir bahyan chakshuh chaivantare bhruvoh
+> Pranapanau samau kritva nasabhyantara charinau 12 (5/27)
+
+> Yatendriya mano budhih munih moksha parayanah
+> Vigateccha-bhaya-krodhah yah sadamuktva eva sah 13 (5/28)
 
 
 ###### Translation: 
 
-bahyan (of outside) sparshan (sense objects) bahih (keeping mind externally) chaksuh (eyes) bruvoh ( the eyebrows) antare (between) eva (certainly) nasabhyantaracharinau (moving within the nostrils) prana-apana (up and down moving air) samau (in suspension) kritva (keeping) yat indriya mano budhir (controlled senses, mind and intellect) vigateccha-bhaya-krodhah (having discarded desires, fear and anger) moksha parayanah (being so determined for liberation) yah (one who) munir (sage) sah (he is) sada (always) mukta (liberated) eva (certainly)
+bahyan (of outside) sparshan (sense objects) bahih (keeping mind externally) chaksuh (eyes) bruvoh ( the eyebrows) antare (between) eva (certainly) nasabhyantaracharinau (moving within the nostrils) prana-apana (up and down moving air) samau (in suspension) kritva (keeping) yat indriya mano budhir (controlled senses, mind and intellect) vigateccha-bhaya-krodhah (having discarded desires, fear and anger) moksha parayanah (being so determined for liberation) yah (one who) munir (sage) sah (he is) sada (always) mukta (liberated) eva (certainly).
+
 Shutting out all external objects, keeping the eyes and vision concentrated between the two eyebrows, suspending the inward and outward breath and within the nostrils and thus controlling the mind, senses and intelligence, the sage (transcendentalist) aiming at the liberation becomes free from desire, fear and anger. One who is always in this state is certainly liberated.
 
 ###### Spiritual commentary: 
 
 The external air of the kriyaban who practices pranayama remains outside. His eyes do not blink and his attention remain fixed between the eyebrows. Prana and apana remain in equilibrium and the air flows inside the nostrils. The senses are restrained and so are his mind and intellect. Such yogis will attain liberation. This is called Jivan mukti or liberation while living in the body. One who is free from desire, fear and anger is ever liberated.
-Bhoktaram yajna tapasam sarva loka maheshvaram
-Suhridam sarva bhutanam jnatva maam shantim rucchati 
- (5/29)
+
+
+> Bhoktaram yajna tapasam sarva loka maheshvaram
+> Suhridam sarva bhutanam jnatva maam shantim rucchati (5/29)
 
 
 ###### Translation: 
 
-bhoktaram (the beneficiary) yajna tapasaam (of all the yajnas and austerities) sarva loka maheshvaram (the supreme Lord of all planets) sarva bhutanam (all living entities) suhridam (benefactor) jnatva (thus knowing) maam (me) shantim (peace) rucchati (one achieves)
+bhoktaram (the beneficiary) yajna tapasaam (of all the yajnas and austerities) sarva loka maheshvaram (the supreme Lord of all planets) sarva bhutanam (all living entities) suhridam (benefactor) jnatva (thus knowing) maam (me) shantim (peace) rucchati (one achieves).
+
 A person in full consciousness of Me, knowing to be the ultimate beneficiary of all sacrifices and austerities, the Supreme Lord of all planets and the benefactor and well wisher of all living entities, attain relief and peace.
 
 ###### Spiritual commentary: 
 
 Brahma is the doer of all actions. He is the dispenser, he remains self-absorbed. This is called tapasya or meditation i.e. holding onto the kutastha. He is in all and in all individuals. Though He is separate, yet He is the Supreme Lord residing in the heart of all beings in the form of breath (prana, the life force). Realizing this at the after-effect poise of kriya, the yogi attains the state of eternal peace. In other words he realizes that “I am nothing and I have nothing”.
 
-Anashritah karmaphalam karyam karma karoti yah
-Sa sannyasi cha yogi cha na niragnih na cha akriyah 
- (6/1)  
+> Anashritah karmaphalam karyam karma karoti yah
+> Sa sannyasi cha yogi cha na niragnih na cha akriyah (6/1)  
 
 
 ###### Translation: 
 
 yah (one who) karma-phalam (of the result of work) anashritah (without taking shelter) karyam (obligatory) karma (work) karoti (performs) sah (he) cha (also) sannyasi ( a renunciant) yogi cha (also yogi) na niragnih (not without fire) na cha akriyah (also nor one who has renounced action)
+
 One who is unattached to the fruits of his work and whose work is obligatory, is in the renounced order of life and he is a true yogi, not he who lights no fire nor he who performs no duty.
 
 ###### Spiritual commentary: 
 
 He who performs all actions without the expectation of results is a Yogi (tyagi) and sannyasi (renunciant). But he who abstains from making fire or performing actions is neither a yogi nor a sannyasi.
-Uddharet atmana atmanam na atmanam avasadayet
-Atmaiva hi atmano bandhuh atmaiva ripuh atmanah 
- (6/5)
+
+> Uddharet atmana atmanam na atmanam avasadayet
+> Atmaiva hi atmano bandhuh atmaiva ripuh atmanah (6/5)
 
 
 ###### Translation: 
 
 atmana (wisdom united mind) atmanam (the conditioned soul) uddhared (one must deliver) avasadayet (put into degradation) hi (indeed) atma (ego/mind) eva (certainly) atmanah (of the soul) bondhuh (friend) atma eva (certainly the ego/mind) ripuh (enemy) atmanah (of the soul)
+
 One must deliver himself with the help of his wisdom united mind and not degrade himself. The mind is the friend of the conditioned soul, and his enemy as well.
 
 ###### Spiritual commentary: 
 
 Deliverance of oneself with the help of his wisdom united mind implies that he tranquilises the breath and keeps it in the head by kriya practice. Otherwise, he becomes attracted to negative actions or tamasika karma. So you are your friend and your enemy as well.
-Yogi yunjita satatam atmanam rahasi sthitah
-Ekaki yatchittatma nirashih aparigrahah
- (6/10)
+
+> Yogi yunjita satatam atmanam rahasi sthitah
+> Ekaki yatchittatma nirashih aparigrahah (6/10)
 
 
 ###### Translation: 
 
 yogi (transcendentalist) satatam (constantly) rahasi (in a secluded place) sthitah (beig situated) ekaki (alone) yat chitta atma (always careful in controlled mind) nirashih (without being attracted by anything else) aparigrahah (free from the feeling of possessiveness) atmanan (himself-body mind and soul) yunjita (must concentrate on the supreme)
+
 A transcendentalist should always engage himself (body, mind and soul) with the Supreme. He should live alone in a secluded place and should always carefully control his mind. He should be free from desires and feeling of possessiveness.
 
 ###### Spiritual commentary: 
 
 A true yogi always practices kriya and attains the after effect poise. He realizes the secrets of the Self and the mysteries of symbols visualized in the pure state of mind where there is neither day nor night. He remains absorbed and desires for nothing. Though in the midst of people, he is alone inside. He perceives nothing but the Self and he is interested in the Self only.
-Yuktaharaviharasya yukta chestasya karmasu
-Yukta svapnavabodhasya yogo bhavati duhkhaha
- (6/17)
+
+> Yuktaharaviharasya yukta chestasya karmasu
+> Yukta svapnavabodhasya yogo bhavati duhkhaha (6/17)
 
 
 ###### Translation: 
 
 yukta (regulated) ahara (eating) viharasya (recreation) karmasu (in discharging duties) yukta (regulated) chestasya (of one who works for maintenance) yogah (practice of yoga) dukhaha (destroyer of worldly pains) bhavati (becomes)
+
 He who is regulated in his habits of eating, sleeping, recreation and work can mitigate all worldly pains by practicing yoga system.
 
 ###### Spiritual commentary: 
 
 One should eat, move, sleep, make efforts and work by remaining in the after effect poise of kriya. Otherwise you will not succeed in yoga practice. If you follow the disciplines you will not face difficulty.
-Yam labdhva chaparam labhdam manyate nadhikam tatah
-Yasmin sthito na duhkhena gurunapi vichalyate 
- (6/22)
+
+> Yam labdhva chaparam labhdam manyate nadhikam tatah
+> Yasmin sthito na duhkhena gurunapi vichalyate (6/22)
 
 
 ###### Translation: 
@@ -1450,240 +1475,272 @@ Established thus, one never departs from the truth and upon gaining this, he thi
 ###### Spiritual commentary: 
 
 The seeker does not consider any gain superior to Self-knowledge. This is the supreme gain or perfect attainment as said by the wise men. 
+
 This is why, all scriptures say that one must respect the advice of the realized souls. When one is established in such a state day and night, even in acute suffering he does not feel sorrow or become nervous. In other words, the Kriyaban does not stop practicing kriya even though placed in a tough situation.
-Tam vidyat duhkhasamyogaviyogam yoga samjnitam
-Sa nischayena yoktavyah yoga anirvinnachetasa 
- (6/23)
+
+> Tam vidyat duhkhasamyogaviyogam yoga samjnitam
+> Sa nischayena yoktavyah yoga anirvinnachetasa (6/23)
 
 
 ###### Translation: 
 
-tam (that) vidyat (you must know) dukkha samyoga viyogam ( which is without the miseries of material contact) yoga sanjnitam ( which is known as yoga) sa (that) yoga (yoga) anirvinnachetasa (stout heart) nischayena (resolutely) yoktavyah (to be practiced)
+tam (that) vidyat (you must know) dukkha samyoga viyogam ( which is without the miseries of material contact) yoga sanjnitam ( which is known as yoga) sa (that) yoga (yoga) anirvinnachetasa (stout heart) nischayena (resolutely) yoktavyah (to be practiced).
+
 One should know the miseries of material contact and the way of getting rid of them which is yoga and that state is yoga, the pain free state. The practice of yoga is to be done resolutely and with a stout heart.
 
 ###### Spiritual commentary: 
 
 The spiritual science is true science of knowledge. Kriya yoga is real science which is found after a great deal of effort. When one remains perfectly attuned with the knowledge of the Self, then one is said to be in the state of yoga. Therefore, one should receive instructions from his guru and practice kriya without entertaining any desire for anything.
-Sarvabhutastham atmanam sarvabhutani chatmani 
-Iksate yogayuktatma sarvatra samadarshanah 21 (6/29)
+
+> Sarvabhutastham atmanam sarvabhutani chatmani 
+> Iksate yogayuktatma sarvatra samadarshanah 21 (6/29)
 
 
 ###### Translation: 
 
-yoga yuktatma (one who is united to spirit by yoga) sarvatra (everywhere) samadarsanah (seeing equally)  atamanam (the super soul) sarva bhutani (all beings) cha (and) sarvabhutastham (situated in all beings) atmani (in the Self) iksate (sees)
+yoga yuktatma (one who is united to spirit by yoga) sarvatra (everywhere) samadarsanah (seeing equally)  atamanam (the super soul) sarva bhutani (all beings) cha (and) sarvabhutastham (situated in all beings) atmani (in the Self) iksate (sees).
+
 A true yogi observes Me in all beings and also sees everything in Me. Indeed the Self realized person sees Me, the same Supreme Lord, everywhere.
 
 ###### Spiritual commentary: 
 
 I am in all beings. That is, the soul is in all individuals is in the Self. This is realized in the after effect poise of kriya by practice of contemplation, meditation and samadhi. In that state the whole universe appears to be full of the Brahma. So, he sees all as equal.
-Yo mam pashyati sarvtra sarvam cha mayi pashyatitasyaham na pranashyami sa cha me na pranashyati 
-(6/30)
+
+> Yo mam pashyati sarvtra sarvam cha mayi pashyatitasyaham na pranashyami sa cha me na pranashyati (6/30)
 
 
 ###### Translation: 
 
 yo (whoever) mam (me) sarvatra (everywhere) pashyati (sees) cha (and) mayi (in me) pashyati (sees) sarvam (everything) tasya (for him) aham (I) na (not) pranashyami (invisible) sah (he) cha (also) me (to me) na (not) pranashyati (lost)
+
 For one who sees Me everywhere and sees everything in Me, I am never lost to him nor is he ever lost to Me.
 
 ###### Spiritual commentary: 
 
 He who thus sees Me everywhere, sees Me (the self) in all. He does not destroy Me (the Self) in all. He does not destroy Me (the Self); that is, he never sees anything except Me (the Self). And I also see him (as the Self), that is, I do not see anything except him (as the Self) and I do not destroy (the Self).
-Sarvabhutasthitam yo mam bhajati ekatvam asthitah
-Sarvatha vartamanah api sa yogi mayi vartate
- (6/31)
+
+> Sarvabhutasthitam yo mam bhajati ekatvam asthitah
+> Sarvatha vartamanah api sa yogi mayi vartate (6/31)
 
 
 ###### Translation: 
 
-yo (he who) sarvabhuta sthitam (situated in every one’s heart) mam (me) ekatvam (in oneness) asthitah (situated) bhajati (anchored in divine unity) sah (he) yogi (transcendentalist) sarvatha (in all respects) vartamnah api (being situated) mayi (in me) vartate (remains)
+yo (he who) sarvabhuta sthitam (situated in every one’s heart) mam (me) ekatvam (in oneness) asthitah (situated) bhajati (anchored in divine unity) sah (he) yogi (transcendentalist) sarvatha (in all respects) vartamnah api (being situated) mayi (in me) vartate (remains).
+
 That yogi stays for ever in Me, who anchored in divine unity, whatever his mode of existence realizes Me as super soul as pervading all beings.
 
 ###### Spiritual commentary: 
 
 He who thus sees Me present in all beings the after effect poise of kriya attains peace and is in Me though engaged in other things as well.
-Tapasvibhyo adhiko yogi jnanibhyo api mato adhikah 
-Karmibhyah chadhiko yogi tasmad yogi bhavarjuna
- (6/46)
+
+> Tapasvibhyo adhiko yogi jnanibhyo api mato adhikah 
+> Karmibhyah chadhiko yogi tasmad yogi bhavarjuna (6/46)
 
 
 ###### Translation: 
 
-Yogi (transcendentalist) tapasvibho (than ascetics) adhiko (greater) jnanibhyo (than the wise) adhiko (greater) api (also) yogi (yogi) karmibhyah (than the workers desirous of results) cha (also) adhikah (greater) mato (my view) tasmad (therefore) arjuna (O arjuna) yogi bhava (become yogi, transcendentalist)
+Yogi (transcendentalist) tapasvibho (than ascetics) adhiko (greater) jnanibhyo (than the wise) adhiko (greater) api (also) yogi (yogi) karmibhyah (than the workers desirous of results) cha (also) adhikah (greater) mato (my view) tasmad (therefore) arjuna (O arjuna) yogi bhava (become yogi, transcendentalist).
+
 A yogi is greater than the ascetic, greater than the erudites and greater than the workers desirous of results, therefore O Arjuna, become a yogi.
 
 ###### Spiritual commentary: 
 
 To remain in the after effect poise of kriya is greater than concentration in between the eyebrows. It is greater than practice of yonimudra and even better than kriya practice. So be a yogi.
-Yoginam api sarvesham mad gatena antaratmana
-Shraddhavan bhajate yo mam sa me yuktatamo matah.
- (6/47)
+
+> Yoginam api sarvesham mad gatena antaratmana
+> Shraddhavan bhajate yo mam sa me yuktatamo matah. (6/47)
 
 
 ###### Translation: 
 
 yo (one who) shradhavan (devotee with full faith) mat gatena (abiding in me, thinking of me) mam (to me) bhajate (renders transcendental service lovingly) sarvesham (of all types) yoginam api (of yogis also) sa (he) yuktatmo (the greatest yogi) me (my) matah (opinion).
+
 Out of all yogis, the one with great faith who always abides in Me, thinks of Me within himself and renders transcendental service lovingly to Me, is the most intimately united with Me in yoga. This is my opinion.
 
 ###### Spiritual commentary: 
 
 He who is established in the after effect poise of kriya and whose mind is always absorbed in Brahma will come to Me. The senses will be automatically controlled if you know Me.
-Daivi hi esha gunamayi mama maya durataya
-Mam eva ye prapadyante mayam etam taranti te
- (7/14)
+
+> Daivi hi esha gunamayi mama maya durataya
+> Mam eva ye prapadyante mayam etam taranti te (7/14)
 
 
 ###### Translation: 
 
-esha (this) daivi (transcendental) gunamayi (consisting of the modes of material nature) mama (my) maya (delusion) hi (certainly) duratyaya (very difficult to overcome) ye (those who) mam (unto me) eva (certainly) prapadyante (surrender) te (they) mayam etam (this delusive energy) taranti (overcome)
+esha (this) daivi (transcendental) gunamayi (consisting of the modes of material nature) mama (my) maya (delusion) hi (certainly) duratyaya (very difficult to overcome) ye (those who) mam (unto me) eva (certainly) prapadyante (surrender) te (they) mayam etam (this delusive energy) taranti (overcome).
+
 This divine (transcendental/supernatural) energy of Mine, consisting of three modes of material nature is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it.
 
 ###### Spiritual commentary: 
 
 By holding on to the kutasth one attains divine qualities. My delusive energy covers the self. So, if you look at other things beside the Brahma, you will not be able to realize. You will know the self-provided you remain fixed in the self. If you remain far from the self, you will not experience anything. He who always remains in the self, is able to overcome maya and practice kriya.
-Anta-kale cha mam eva samran muktva kalevaram
-Yah prayati sa madbhavam yati nasti atra samshayah
- (8/5)
+
+> Anta-kale cha mam eva samran muktva kalevaram
+> Yah prayati sa madbhavam yati nasti atra samshayah (8/5)
 
 
 ###### Translation: 
 
-antakale cha (at the end of life) yah (he who) mam eva (certainly me) smaran (remembering) kalevaram (the body) muktva (quitting) prayati (goes) sa (he) madbhavam (my nature) yati (achieves) atra (here) samsayah (doubt) na asti (thers is not). 
+antakale cha (at the end of life) yah (he who) mam eva (certainly me) smaran (remembering) kalevaram (the body) muktva (quitting) prayati (goes) sa (he) madbhavam (my nature) yati (achieves) atra (here) samsayah (doubt) na asti (their is not). 
+
 Whoever at the end of his life, quits his body remembering Me alone, at once attains My nature. About this there is no doubt.
 
 ###### Spiritual commentary: 
 
 He who at the time of death, renounces his body remembering Me at the kutastha, attains My nature as because his mind remained always fixed on Me. He attains freedom. There is no doubt about it. A kriyaban experiences dissolution every day.
-Tasmat sarveshu kaleshu mam anusmara yudhya cha
-Mayi arpita-mano-buddhih mam eva aishysi asamashayam
- (8/7)
+
+> Tasmat sarveshu kaleshu mam anusmara yudhya cha
+> Mayi arpita-mano-buddhih mam eva aishysi asamashayam (8/7)
 
 
 ###### Translation: 
 
-tasmat (therefore) sarveshu (all) kaleshu (times) mam (me) anusmara (go on remembering) yudhya (fight) cha (and) mayi (unto me) arpita (surrendering) manah (mind) buddhih (intellect) mam (unto me) eva (certainly) asamsayam (without doubt) aisyasi (you will attain)
+tasmat (therefore) sarveshu (all) kaleshu (times) mam (me) anusmara (go on remembering) yudhya (fight) cha (and) mayi (unto me) arpita (surrendering) manah (mind) buddhih (intellect) mam (unto me) eva (certainly) asamsayam (without doubt) aisyasi (you will attain).
+
 Therefore, you (Arjuna) should think of Me and at the same time carry out your prescribed duty of fighting. With your activities dedicated to Me and your mind and intelligence surrendered (fixed) on Me, you will certainly attain Me without doubt.
 
 ###### Spiritual commentary: 
 
 Therefore, he who holds on to the self becomes one with the Ultimate Self or Brahma. Remember Him and go on practicing in kriya.
-Ananya chetah satatam yo mam smarati nityashah
-Tasyaham sulabhah Partha nitya yuktasya yoginah
- (8/14)
+
+> Ananya chetah satatam yo mam smarati nityashah
+> Tasyaham sulabhah Partha nitya yuktasya yoginah (8/14)
 
 
 ###### Translation: 
 
-yo (anyone who) ananya chetah (without deviation of mind) nityashah (regularly) satatam (always) mam (me) smarati (remembers) Partha (son of Partha) aham (I) tasya (to him) nitya yuktasya (engaged regularly) yoginah (for the yogi) sulabhah (easy to achieve)
+yo (anyone who) ananya chetah (without deviation of mind) nityashah (regularly) satatam (always) mam (me) smarati (remembers) Partha (son of Partha) aham (I) tasya (to him) nitya yuktasya (engaged regularly) yoginah (for the yogi) sulabhah (easy to achieve).
+
 For one who always remembers Me without deviation, I am easy to attain, O son of Pandu, because of his constant engagement in Me.
 
 ###### Spiritual commentary: 
 
-He who always holds onto the kutastha, remembering the Lord, without looking at anything but the Self attains the Ultimate Self easily. He remains attuned in the after-effect poise of kriya with Dharana, Dhyan and samadhi. Practice of 12 pranayams make pratyahara or interiorization, 144 pranayams make dharana or concentration, 1728 pranayamas make Dhyana or meditation and 20,736 pranayamas make samadhi or divine union with the Ultimate Self. To remain absorbed in samadhi is called yoga. If one practices 1728 pranayamas for twelve days he will complete the necessary number but may not attain the real state of samadhi. Along with all other kriyas if one can practice pranayama always mentally within himself and feel sensation from muladhar to the ajna centre, he will attain conscious samadhi. Everybody should try to practice this. Other types of samadhi brings inertia and as such called static samadhi.
+He who always holds onto the kutastha, remembering the Lord, without looking at anything but the Self attains the Ultimate Self easily. He remains attuned in the after-effect poise of kriya with Dharana, Dhyan and samadhi. Practice of 12 pranayams make pratyahara or interiorization, 144 pranayams make dharana or concentration, 1728 pranayamas make 
+Dhyana or meditation and 20,736 pranayamas make samadhi or divine union with the Ultimate Self. To remain absorbed in samadhi is called yoga. 
+
+If one practices 1728 pranayamas for twelve days he will complete the necessary number but may not attain the real state of samadhi. Along with all other kriyas if one can practice pranayama always mentally within himself and feel sensation from muladhar to the ajna centre, he will attain conscious samadhi. Everybody should try to practice this. 
+
+Other types of samadhi brings inertia and as such called static samadhi.
+
 When one practices 1,728 pranayamas occasionally (this may take morning to 10 pm) he can, after a few days, see the essential nature of all seasons and the earth. If you practice kriya with one pointed attention, you can also see whatever you wish to see.
+
 If one practices pranayama always, the automatically the mind becomes tranquil and the Self is realized (after practising for six months continuously with determined efforts). But this will not happen if the practice is done with the motive for some results.
-Ananyaha chintayanto mam ye janah paryupasate
-Tesham nityabhi yuktanam yogakshemam vahami aham
- (9/22) 
+
+> Ananyaha chintayanto mam ye janah paryupasate
+> Tesham nityabhi yuktanam yogakshemam vahami aham (9/22) 
 
 
 ###### Translation: 
 
-ye janah (those persons) ananyah (having no other object) chintayanto (concentrating) mam (me) paryupasate (properly worship) tesham (of them) nityabhiyuktanam (always fixed in me) yogakshemam (requirement and protection) aham (I) vahami (carry)
+ye janah (those persons) ananyah (having no other object) chintayanto (concentrating) mam (me) paryupasate (properly worship) tesham (of them) nityabhiyuktanam (always fixed in me) yogakshemam (requirement and protection) aham (I) vahami (carry).
+
 Persons who meditating on Me as non-separate, worship Me in all beings, to them thus ever zealously engaged, I carry what they lack and preserve what they already have.
 
 ###### Spiritual commentary: 
 
 If one remains always absorbed in the Self without looking outward for anything else, I give him the wisdom necessary for attaining samadhi.
-Vedeshu yajneshu tapahsu chaiva daneshu yat punyaphalam pradishtam
-Atyeti tat sarvam idam viditva yogi parama sthanam upaiti chadyam
- (8/28)
+
+> Vedeshu yajneshu tapahsu chaiva daneshu yat punyaphalam pradishtam
+> Atyeti tat sarvam idam viditva yogi parama sthanam upaiti chadyam (8/28)
 
 
 ###### Translation: 
 
-vedeshu (in the study of the vedas) yajneshu (in the performance of yajna-sacrifice) tapahsu (in undertaking different types of austerities) daneshu chaiva (certainly in giving charities also) yat (that which) punya phalam (result of pious work) pradishtam (indicated) idam (this) viditva (knowing) yogi (yogi) tat (those) sarvam (all) atyeti (surpasses) cha (and) adyam (original) parama sthanam (supreme abode) upaiti (achieves)
+vedeshu (in the study of the vedas) yajneshu (in the performance of yajna-sacrifice) tapahsu (in undertaking different types of austerities) daneshu chaiva (certainly in giving charities also) yat (that which) punya phalam (result of pious work) pradishtam (indicated) idam (this) viditva (knowing) yogi (yogi) tat (those) sarvam (all) atyeti (surpasses) cha (and) adyam (original) parama sthanam (supreme abode) upaiti (achieves).
+
+
 Yogis are not bereft of any fruit of the acts of studying the vedas, performing of rites, rituals and sacrifices and of charity; rather they get better virtues and understanding of the essence of spirituality, they gain knowledge and ultimately the supreme abode.
 
 ###### Spiritual commentary: 
 
-Having practiced all the kriyas and experiencing deeply and initiating others into kriya, the yogi holds on to the kutastha always and sees as if all the realized yogis are sitting before the kutastha. Then in course of kriya practice, he seated in one place practices pranayama 20,736 times. Gradually he attains the after-effect poise of kriya and holds on to that state always. There is no state higher than that. That is the highest state or the Brahma. The yogi merges himself in that state and attains the Ultimate Self, the Origin.
-Mat-karmakrin mat paramah mad-bhaktah sangavarjitah
-Nirvairah sarva bhuteshu yah sa mam eti Panadava
- (11/55)
+Having practiced all the kriyas and experiencing deeply and initiating others into kriya, the yogi holds on to the kutastha always and sees as if all the realized yogis are sitting before the kutastha. Then in course of kriya practice, he seated in one place practices pranayama 20,736 times. 
+
+Gradually he attains the after-effect poise of kriya and holds on to that state always. There is no state higher than that. That is the highest state or the Brahma. The yogi merges himself in that state and attains the Ultimate Self, the Origin.
+
+> Mat-karmakrin mat paramah mad-bhaktah sangavarjitah
+> Nirvairah sarva bhuteshu yah sa mam eti Panadava (11/55)
 
 
 ###### Translation: 
 
-Pandava (O son of Pandu) yah (one who) matkarmakrit (works for me alone) mat paramah (considering me supreme) mad bhaktah (my devotee) sanga varjitah (free from all attachments) sarva bhuteshu (among all living beings) nir vairah (without an enemy) sa (he) mam eti (comes to me)
+Pandava (O son of Pandu) yah (one who) matkarmakrit (works for me alone) mat paramah (considering me supreme) mad bhaktah (my devotee) sanga varjitah (free from all attachments) sarva bhuteshu (among all living beings) nir vairah (without an enemy) sa (he) mam eti (comes to me).
+
 O, son of Pandu, he who is My devotee, free from attachments, works for Me, who makes the Supreme Goal of his life and who is friendly to every living being, certainly comes to Me.
 
 ###### Spiritual commentary: 
 
 Perform My work, that is, practise kriya which can be known from the guru only. Remain concentrated in the kutastha i.e Me and have faith in the words of the guru as you actually get results. Therefore, do not desire for anything else. Established in the pure Brahma treat everybody as equal. You will have no enmity towards anybody
+
 He who remains in this state realizes Me. This implies that he remains absorbed in himself in the state of after effect poise of kriya.
-Shreyo hi jnanam abhyasat jnanat dhyanam vishishyate
-Dhyanat karma phala tyagah tyagat shantih anantaram
- (12/12)
+
+> Shreyo hi jnanam abhyasat jnanat dhyanam vishishyate
+> Dhyanat karma phala tyagah tyagat shantih anantaram (12/12)
 
 
 ###### Translation: 
 
-shreyo (better) hi (certainly) jnanam (knowledge) abhyasat (than mechanical yoga practice) jnanat (than theoretical knowledge) dhyanam (meditation) vishiyate (is considered better) dhyanat (than meditation) karma phala tyagah (renunciation of fruitful action) tyagat (by such renunciation) anantaram (immediately followed by) shantih (peace)
+shreyo (better) hi (certainly) jnanam (knowledge) abhyasat (than mechanical yoga practice) jnanat (than theoretical knowledge) dhyanam (meditation) vishiyate (is considered better) dhyanat (than meditation) karma phala tyagah (renunciation of fruitful action) tyagat (by such renunciation) anantaram (immediately followed by) shantih (peace).
+
 Certainly, wisdom is superior to mechanical yoga practice, meditation is better than wisdom (theoretical knowledge). Better than meditation is renunciation of the fruit of action, for by that one can attain peace of mind.
 
 ###### Spiritual commentary: 
 
-Practice of 1,728 pranayamas is better than practising yonimudra. Better than this is to practice kriya regularly without having any expectation of results in mind. Even greater than this is to know that “I am nothing and I have nothing” which is realized in the after-effect poise of kriya
-Nirmananmoha jitasangadoshah
-adhyatmanitya vinivrittakamah 
-dvandvair vimuktah Sukhaduhkhasamjnaihi
-gacchanti amudhah padam avyayam tat.                                                                                      34 (15/5)
+Practice of 1,728 pranayamas is better than practising yonimudra. Better than this is to practice kriya regularly without having any expectation of results in mind. Even greater than this is to know that “I am nothing and I have nothing” which is realized in the after-effect poise of kriya.
+
+> Nirmananmoha jitasangadoshah
+> adhyatmanitya vinivrittakamah 
+> dvandvair vimuktah Sukhaduhkhasamjnaihi
+> gacchanti amudhah padam avyayam tat. 34 (15/5)
 
 
 ###### Translation: 
 
-nirmanamoha (free from pride and delusion) jita sanga doshah (victorious from the evil of attachment) adhyatma nityah (dwelling constantly in self) vinivrittakamah (desires completely turned away) dvandvaihi (free from pairs of opposite) vimuktah (freed) sukhadukkhasangaihi (known as pleasure and pain) amudhah (the undeluded) tat (that) avyayam (the eternal) padam (goal) gacchanti (reach)
+nirmanamoha (free from pride and delusion) jita sanga doshah (victorious from the evil of attachment) adhyatma nityah (dwelling constantly in self) vinivrittakamah (desires completely turned away) dvandvaihi (free from pairs of opposite) vimuktah (freed) sukhadukkhasangaihi (known as pleasure and pain) amudhah (the undeluded) tat (that) avyayam (the eternal) padam (goal) gacchanti (reach).
+
 Free from pride and evil of attachment, ever dwelling in the self, desires completely stilled, liberated from the pairs of opposites (pleasures and pain) the undeluded reach the eternal goal.
 
 ###### Spiritual commentary: 
 
-The seeker becomes free from the sense of pride and desire for praise from others. He then does not consider anything as his own. Devoid of desire, doubt and duality of pleasure and pain, he remains in the after-effect poise of kriya constantly throughout the day and night. The ignorant people who do not practice kriya can also attain immortality and immutability i.e. the state of after effect poise of kriya
-Manmana bhava madbhaktah madyaji mam namaskuru
-Mam eva eshyasi satyam te pratijane priyo’si me. 
- (18/65)
+The seeker becomes free from the sense of pride and desire for praise from others. He then does not consider anything as his own. Devoid of desire, doubt and duality of pleasure and pain, he remains in the after-effect poise of kriya constantly throughout the day and night. The ignorant people who do not practice kriya can also attain immortality and immutability i.e. the state of after effect poise of kriya.
+
+> Manmana bhava madbhaktah madyaji mam namaskuru
+> Mam eva eshyasi satyam te pratijane priyo’si me. (18/65)
 
 
 ###### Translation: 
 
-manmanah (with mind fixed on me) bhava (be) madbhaktah (devoted to me) madyaji (worship me) mam (me) namaskuru (bow down) mam eva (me only) eshyasi (you will come) te (you) priyo (dear) asi (you are) pratijane (I promise)
+manmanah (with mind fixed on me) bhava (be) madbhaktah (devoted to me) madyaji (worship me) mam (me) namaskuru (bow down) mam eva (me only) eshyasi (you will come) te (you) priyo (dear) asi (you are) pratijane (I promise).
+
 Fix your mind on Me, be devoted to Me, worship Me, prostrate before Me so that you will come to Me without fail. This is My promise for you are dear to Me.
 
 ###### Spiritual commentary: 
 
 Fix your mind on Me, that is, practice kriya. Bow down to Me, means practice omkar kriya which is to be learnt from the guru. I give you assurance that you will become My own. I promise you because you are dear to Me.
-Sarvadharman parityajya mam ekam sharanam Vraja
-Aham tva sarva papebhyo mokshayishyami ma suchah
- (18/66)
+
+> Sarvadharman parityajya mam ekam sharanam Vraja
+> Aham tva sarva papebhyo mokshayishyami ma suchah (18/66)
 
 
 ###### Translation: 
 
-sarvadharman (all varieties of religion) parityajya (having abandoned) ekam (alone) mam (to me) sharanam Vraja (take refuse) aham (I) tva (you) sarvapapebhyo (from all sins) mokshayishyami (will liberate) ma sucah (do not grieve) 
+sarvadharman (all varieties of religion) parityajya (having abandoned) ekam (alone) mam (to me) sharanam Vraja (take refuse) aham (I) tva (you) sarvapapebhyo (from all sins) mokshayishyami (will liberate) ma sucah (do not grieve).
+
 Abandon all varieties of religion and take refuse in Me. I shall deliver you all of all sinful reaction. Do not grieve.
 
 ###### Spiritual commentary: 
 
 Do not look at anything with desire. Fix your mind on the Self only and go on practising kriya as instructed by your guru. Remember Him all the time. If you practice kriya regularly, I will make you free from all attachments. Your mind will not be interested in anything at all but will remain established in the after-effect poise of kriya. You need not worry about attainment any more.
 
-Conclusion
-Yatra yogeshvarah Krishnah yatra Partho dhanurdharah
-Tatra shrirvijayo bhutih Dhruva nitih matih mama 
-(18/78)
+### Conclusion
+
+> Yatra yogeshvarah Krishnah yatra Partho dhanurdharah
+> Tatra shrirvijayo bhutih Dhruva nitih matih mama (18/78)
 
 
 ###### Translation: 
 
-yatra (wherever) yogeshvarah (the Lord of yoga) Krishnah (Sri Krishna) yatra (wherever) dhanurdharah (wielder of the bow) Parthah (Partha) tatra (these) shrih (prosperity) vijayah (victory) bhutih (expansion) dhruva (sound) nitih (policy) iti (such) mama (my) matih (conviction)
+yatra (wherever) yogeshvarah (the Lord of yoga) Krishnah (Sri Krishna) yatra (wherever) dhanurdharah (wielder of the bow) Parthah (Partha) tatra (these) shrih (prosperity) vijayah (victory) bhutih (expansion) dhruva (sound) nitih (policy) iti (such) mama (my) matih (conviction).
+
 In the final opinion of Sanjaya, wherever is Sri Krishna, the Lord of yoga and wherever is Partha, the expert wielder of the bow, there are prosperity, victory, expansion and sound policy of self-discipline leading to strengthening of morality and final liberation.
 
 ### Hari
