@@ -196,7 +196,10 @@ Ayam (this soul) kadachit (at any time) na  (never) jayate (takes birth) va (eit
 
 For the soul there is neither birth nor death at any time. He has not come into being, does not come into being and will not come into being. He is unborn, eternal, ever existing and primeval. He is not slain when body is slain.
 
-Spiritual commentary- He is without birth as He is eternal and omnipresent. Where is the space for Him to be born and how can there be death for that which is eternal?
+
+###### Spiritual commentary: 
+
+He is without birth as He is eternal and omnipresent. Where is the space for Him to be born and how can there be death for that which is eternal?
 
 Everything is Brahma. 
 
@@ -204,50 +207,72 @@ Then how could there be change from one thing to another? This is not possible. 
 
 The existence and dissolution of the manifested are all same. That being so, where is the scope for further existence? He is not born from anything because He is self-caused (svayambhu) eternal Being. He never kills because by which instrument will he kill? The instrument by which He will kill is Brahma and the king He will kill is also Brahma? This body is always decaying. How can the decaying instrument kill the deathless, the eternal existence?
 
-Nainam chindanti shastrani nainam dahati pavakah
-Na chainam kledayantyapo na shosyati maarutah 3 (2/23)
+> Nainam chindanti shastrani nainam dahati pavakah
+> Na chainam kledayantyapo na shosyati maarutah 3 (2/23)
 
+###### Translation: 
 
-Translation- shastrani(weapons) enam (this soul) na (never) chindanti (can cut to pieces) pavakah (fire) enam (this soul) na (never) dahati (burns) apah (water) cha (also) enam (this soul) na (never) kledayanti (moisten) maarutah (wind) na (never) shosayati (dries)
+shastrani(weapons) enam (this soul) na (never) chindanti (can cut to pieces) pavakah (fire) enam (this soul) na (never) dahati (burns) apah (water) cha (also) enam (this soul) na (never) kledayanti (moisten) maarutah (wind) na (never) shosayati (dries)
 
 The soul can never be cut to pieces by any weapon, nor burned by fire, nor moisten by water, or dried by wind.
-Spiritual commentary- No weapon can cut Kutastha. Sword cannot cut that void which come out of Him. Similarly, when the air is tranquil in the body how then could it be cut to pieces? Kutastha is not burned by fire, nor drenched by water. It cannot be dried by air also. What exactly Kutastha is, one can know clearly only if one receives Kriya initiation and advice from the Guru and practices accordingly.
-Acchedyo’yam adahyo’yam akledyo’sosya eva ca
-Nitya sarvagatah sthanur achalo’yam sanaatanah 4 (2/2)  
 
-Translation- ayam (this soul) acchedyah (unbreakable) ayam (this soul) adahyah (unable to be burned) akledyah (can not be wetted) ashosyah (not able to be dried) eva (certainly) cha (and) ayam (this soul) nitya (ever lasting) sarvagatah (all pervading) sthanuh (unchangeable) achalah (immovable) sanaatanah (eternal)
+
+###### Spiritual commentary: 
+
+No weapon can cut Kutastha. Sword cannot cut that void which come out of Him. Similarly, when the air is tranquil in the body how then could it be cut to pieces? Kutastha is not burned by fire, nor drenched by water. It cannot be dried by air also. What exactly Kutastha is, one can know clearly only if one receives Kriya initiation and advice from the Guru and practices accordingly.
+
+> Acchedyo’yam adahyo’yam akledyo’sosya eva ca
+> Nitya sarvagatah sthanur achalo’yam sanaatanah 4 (2/2)  
+
+
+
+###### Translation: 
+
+ayam (this soul) acchedyah (unbreakable) ayam (this soul) adahyah (unable to be burned) akledyah (can not be wetted) ashosyah (not able to be dried) eva (certainly) cha (and) ayam (this soul) nitya (ever lasting) sarvagatah (all pervading) sthanuh (unchangeable) achalah (immovable) sanaatanah (eternal)
+
 This soul is unbreakable and cannot be wetted and can neither be burned nor dried. He is everlasting, omnipresent, unchangeable, immovable and eternal.
 
 
 ###### Spiritual commentary: 
 
 Kutastha cannot be cut, burned, wetted or dried as He is eternally present, ever stationed and eternal.
-Avyakto’yam achinto’yam avikaryo’yam uchyate
-Tasmaad evam viditvainam nanusochitum arhasi 5 (2/25)
+Avyakto’yam achinto’yam avikaryo’yam uchyate Tasmaad evam viditvainam nanusochitum arhasi 5 (2/25)
 
-Translation- ayam (this soul), avyaktah (invisible) ayam (this soul) achintyah (inconceivable) ayam (this soul) avikaryah (unchangeable) uchyate (is said) tasmaat (therefore) enam (this soul) evam (like this) viditva (knowing it) anusochitam (lament) na (do not) arhasi (deserve)
+
+
+###### Translation: 
+
+ayam (this soul), avyaktah (invisible) ayam (this soul) achintyah (inconceivable) ayam (this soul) avikaryah (unchangeable) uchyate (is said) tasmaat (therefore) enam (this soul) evam (like this) viditva (knowing it) anusochitam (lament) na (do not) arhasi (deserve)
+
 It is said that this soul is invisible, inconceivable  and immutable. Knowing this, you should not grieve for the body.
 
 
 ###### Spiritual commentary: 
 
 You cannot express Him through the mouth, but can only realise Him. You cannot think of Him for then there will be two. It is not possible to change Him because He is in everything. Realising this fully well, there is no necessity to think or grieve for anything.
-Indriyaani paranyahuh indriyebhyah param manah
-Manasas tu para buddhih yo buddheh paratas tu sah 6- (3/42) 
+
+> Indriyaani paranyahuh indriyebhyah param manah
+> Manasas tu para buddhih yo buddheh paratas tu sah 6- (3/42) 
 
 ###### Translation: 
 
-indriyaani (senses) parani (superior) ahuh (are said), indriyebhyah (more than the sense) param manah, manah (the mind) tu (also) para (superior) buddhih , yo buddheh (intelligence) para astu (superior) sah (He).
+indriyaani (senses) parani (superior) ahuh (are said), indriyebhyah (more than the sense) param manah, manah (the mind) tu (also) para (superior) buddhih, yo buddheh (intelligence) para astu (superior) sah (He).
 The working senses are superior to dull matter, mind is higher than the senses, intelligence is higher  than the mind and the soul is even higher than the intelligence.
 
 
 ###### Spiritual commentary: 
 
 The mind is under the control of the senses. When it becomes tranquil it succeeds in making the intellect calm at the after effect poise of Kriya.
-Ajo’pi sannavyayatma bhutanam ishvaro’pi san
-Prakritim svam adhisthaya sambhavamatmamaya 7 (4/6)
 
-Translation : atma (I) ajah (unborn) avyaya (without deterioration) san (being so) api (although) bhutanam (of all those who are born) Isvarah (the Supreme Lord) api (although) san (being so) svayam (of myself) prakritim (in the transcendental form) adhisthaya (being so situated) atmamayaya (by my internal energy) sambhvami (I do incarnate).
+> Ajo’pi sannavyayatma bhutanam ishvaro’pi san
+> Prakritim svam adhisthaya sambhavamatmamaya 7 (4/6)
+
+
+
+###### Translation: 
+
+atma (I) ajah (unborn) avyaya (without deterioration) san (being so) api (although) bhutanam (of all those who are born) Isvarah (the Supreme Lord) api (although) san (being so) svayam (of myself) prakritim (in the transcendental form) adhisthaya (being so situated) atmamayaya (by my internal energy) sambhvami (I do incarnate).
+
 Although I am unborn and My transcendental body never deteriorates, and although I am the Lord of all living entities, I still appear in My transcendental form by My internal energy.
 
 
@@ -255,23 +280,27 @@ Although I am unborn and My transcendental body never deteriorates, and although
 
 I have no birth, no decay and I am the God of all beings. I am born with the help of nature.
 Yadayada hi dharmasya glanir bhavati bharata
-Abhyuthaanam adharmasya tadatmanam srujamyaham 8 (4/7)
+
+> Abhyuthaanam adharmasya tadatmanam srujamyaham 8 (4/7)
 
 ###### Translation: 
 
- bharatah (descendent of Bharata) yadayada (whenever and wherever)  dharmasaya (of religion) glanih (discrepancies) adharmasya (of irreligion) abhyutthanam (predominance) bhavati (become manifest) tada (at that time) hi (certainly) aham (I) atmanam (self) srijami (manifest)
+bharatah (descendent of Bharata) yadayada (whenever and wherever)  dharmasaya (of religion) glanih (discrepancies) adharmasya (of irreligion) abhyutthanam (predominance) bhavati (become manifest) tada (at that time) hi (certainly) aham (I) atmanam (self) srijami (manifest)
+
 Whenever and wherever there is a decline in religious practice, O descendent of Bharata, and a predominant rise of irreligion, at that time I descend Myself.
 
 
 ###### Spiritual commentary: 
 
- Whenever Kriya is lost I create (myself)  out of Myself
-Paritraanaya sadhunaam vinashaya ca duskrutaam
-Dharmasansthaapanarthaya sambhavaami yuge yuge 9 (4/8)
+Whenever Kriya is lost I create (myself)  out of Myself
+
+> Paritraanaya sadhunaam vinashaya ca duskrutaam
+> Dharmasansthaapanarthaya sambhavaami yuge yuge 9 (4/8)
 
 ###### Translation: 
 
 sadhunaam (of the devotees) paritranaaya (for the deliverance) cha (and) dushkritam (of the miscreants) vinashaya (for the annihilation) dharma (religious principles) sansthapanaarthaya (to re-stablish) yuge yuge (millennium after millennium) sambhavaami (I do appear)
+
 To deliver the pious and to annihilate the miscreants as well as to re-establish the religious principles, I Myself appear millennium after millennium.
 
 
@@ -279,100 +308,121 @@ To deliver the pious and to annihilate the miscreants as well as to re-establish
 
 In order to save the sages and to destroy those who think something other than the Brahma, I incarnate from time to time.
 Mattah parataram nanyat kinchid asti dhananjaya
-Mayi sarvam idam protam sutre manigana iva 10 (7/7)
+
+> Mayi sarvam idam protam sutre manigana iva 10 (7/7)
 
 ###### Translation: 
 
-dhananjaya (conquerer of wealth) mattah (beyond me) parataram (beyond me) anyat kinchit (anything else) na (not) asti (there is) sutre (on a thread) mani ganah (pearls) iva (like) mayi (in me) idam (which we see) sarvam (all that be ) protam (is strung)
+dhananjaya (conquerer of wealth) mattah (beyond me) parataram (beyond me) anyat kinchit (anything else) na (not) asti (there is) sutre (on a thread) mani ganah (pearls) iva (like) mayi (in me) idam (which we see) sarvam (all that be ) protam (is strung).
+
 O conqueror of wealth, there is no truth superior to Me. Everything rests upon Me as pearls are strung on a thread.
 
 
 ###### Spiritual commentary: 
 
 There is nothing except Me. I am the subtle form of the Ultimate Self like the subtle thread of the stem of the lotus. I am in all beings like the thread in the garland of pearls.
-Raso’ham apsu kaunteya prabha’smi shashi suryayoh
-Pranavah sarva vedeshu shabdah khe paurusham nrusu  11 (7/8)
+
+> Raso’ham apsu kaunteya prabha’smi shashi suryayoh
+> Pranavah sarva vedeshu shabdah khe paurusham nrusu 11 (7/8)
 
 ###### Translation: 
 
 Kaunteya (O, so of Kunti) aham (I) apsu ( in water) rasah (taste) shashi suryayoh (of the moon and the sun) prabha (the light) sarva (in all) vedeshu (the vedas) pranavah (om) khe (in the ether) shabdah (sound) nrusu (in men) paurusham (ability) asmi (I am)
-O son of Kunti, I am the taste of water , the light of the sun and the moon, the syllable Om in the vedas. I am the sound in ether and ability in men.
+
+O son of Kunti, I am the taste of water, the light of the sun and the moon, the syllable Om in the vedas. I am the sound in ether and ability in men.
 
 
 ###### Spiritual commentary: 
 
-I am present in Nature just as liquid is present in water and the rays are present in the sun and the moon. I am honesty among honest and dishonesty among dishonest. The light of the sun are clearly visible on water; only a vague light is seen. Fire is purer than water. The clearest manifestation is seen purer in air than in fire. Then ether is void and is tranquil. Here the Kutastha is seen. Hence water , the sun and the rays of the moon are My forms.
-Punyo gandhah prithivyam cha tejaschasmi vibhavasau jivanam sarvabhuteshu tapaschasmi tapasvishu 12 (7/9)
+I am present in Nature just as liquid is present in water and the rays are present in the sun and the moon. I am honesty among honest and dishonesty among dishonest. The light of the sun are clearly visible on water; only a vague light is seen. Fire is purer than water. The clearest manifestation is seen purer in air than in fire. Then ether is void and is tranquil. Here the Kutastha is seen. Hence water, the sun and the rays of the moon are My forms.
+
+> Punyo gandhah prithivyam cha tejaschasmi vibhavasau jivanam sarvabhuteshu tapaschasmi tapasvishu 12 (7/9)
 
 ###### Translation: 
 
 prithivyam (in the earth) punyah (original) gandhah (fragrance) vibhavasau (in the fire) tejah (heat) cha (also) asmi (I am) sarva (in all) bhuteshu (living entities) jivanam (life) cha (also) tapasvishu (in those who practice penance) tapah (penance).
+
 I am the original fragrance of the earth, and I am the heat in the fire. I am the life of all that lives and I am the penances of all ascetics.
 
 
 ###### Spiritual commentary: 
 
-The fragrance of the flowers on the earth has no form. When it comes in contact with nature, it gets smelling. That also is My form. The rays of the sun come through the sky but are seen only when they fall on the earth. Similarly the formless Ultimate Self is invisible but His energy is manifested in the lumbar centre through conversation. No body sees “life” i.e the great Lord Mahadeva who is the “Subject” and is known from the words of the guru. It is His movements or actions which are manifested in the life of all beings. Holding on to the Tapoloka i.e Kutastha (the area between the eyebrows) the yogi sees all. That which is not known by the ignorant is in the entire creation. I am that Brahma and all are My forms.
-Bijam  maam sarvabhutanam viddhi partha sanatanam 
-Buddhirbuddhimataam asmi tejastejasvinam aham. 13 (7/10)
+The fragrance of the flowers on the earth has no form. When it comes in contact with nature, it gets smelling. That also is My form. The rays of the sun come through the sky but are seen only when they fall on the earth. Similarly the formless Ultimate Self is invisible but His energy is manifested in the lumbar centre through conversation. 
+
+No body sees “life” i.e the great Lord Mahadeva who is the “Subject” and is known from the words of the guru. It is His movements or actions which are manifested in the life of all beings. Holding on to the Tapoloka i.e Kutastha (the area between the eyebrows) the yogi sees all. That which is not known by the ignorant is in the entire creation. I am that Brahma and all are My forms.
+
+> Bijam maam sarvabhutanam viddhi partha sanatanam 
+> Buddhirbuddhimataam asmi tejastejasvinam aham. 13 (7/10)
 
 ###### Translation: 
 
-partha (O, son of Pritha) mam (Me) sarva-bhutanam (of all living entities) sanatanam (original) bijam (the seed) viddhi (try to understand) aham (I am) buddhimatam (of the intelligent) buddhih (intelligence) tejasvinam (of the powerful) tejah (prowess) asmi (I am)
+partha (O, son of Pritha) mam (Me) sarva-bhutanam (of all living entities) sanatanam (original) bijam (the seed) viddhi (try to understand) aham (I am) buddhimatam (of the intelligent) buddhih (intelligence) tejasvinam (of the powerful) tejah (prowess) asmi (I am).
+
 O son of Partha, know that I am the original seed of all existences, the intelligence of the intelligent, and the prowess of all powerful men. 
 
 
 ###### Spiritual commentary: 
 
 All beings are born out of Brahma. The real intelligence of the intelligent manifests in the after effect poise of Kriya. Kutastha is the energy of all energies. All energies come only from Him.
-Adhibhutam ksharo bhavah purushaschadhidaivatam
-Adhiyajno’ham evatra dehe dehabhrutaam vara 14 (8/4)
 
-Translation- dehabrutaam (of the embodied) kshara (constantly changing) bhavah (nature) adhibhutam (the physical manifestation) purusha (universal form including all demigods) adhidaivatam (called adhidaiva) cha (and) atra (in this) dehe (body) aham (I) eva (certainly) adhiyajnah (supersoul)
+> Adhibhutam ksharo bhavah purushaschadhidaivatam
+> Adhiyajno’ham evatra dehe dehabhrutaam vara 14 (8/4)
+
+
+###### Translation: 
+
+dehabrutaam (of the embodied) kshara (constantly changing) bhavah (nature) adhibhutam (the physical manifestation) purusha (universal form including all demigods) adhidaivatam (called adhidaiva) cha (and) atra (in this) dehe (body) aham (I) eva (certainly) adhiyajnah (supersoul)
+
 O, best of embodied beings, the physical nature which is constantly changing, is called adhibhuta (the material manifestation). The universal form of the Lord which includes all the demigods, like those of the sun and the moon, is called adhidaiva. And I, the supreme Lord represented as the supersoul in the heart of every embodied being, am called adhiyajna (the lord of sacrifice).
 
 
 ###### Spiritual commentary: 
 
 On keeping the mind fixed on the elements, Kutastha is attained. When the mind becomes still it is called adhibhuta. Then the supreme person is realised. He is formless like the sky. To fix the mind on the intelligence is called adhidaiva. Brahma, the Supreme Being has put on this physical body as a dress and is all pervading and doing everything. This knowledge comes only by the grace of the guru. He is doing all works. To fix the mind on Him and perform actions is called adhiyajna.
-Aham kratur aham yajnah svadhaham aham aushadham
-Mantro’ham aham evajyam aham agnirahamutam 15 (9/16)
+
+> Aham kratur aham yajnah svadhaham aham aushadham
+> Mantro’ham aham evajyam aham agnirahamutam 15 (9/16)
 
 ###### Translation: 
 
 aham (I) kratuh (vedic ritual) aham (I) svadha (oblation) aham (I) aushadham (healing herb) aham (I ) eva (certainly) agnih (fire) aham (I )  hutam (offering)
+
 But it is I who am the ritual, I the sacrifice, the offering to the anscestors, the healing herb, the transcendental chant, I am the clarified butter and the fire and the offering.
 
 
 ###### Spiritual commentary: 
 
 I am the subject. I am the performer of yajna and the instrument of the yajna as well. I am yajna and the instrument of the yajna as well. I am yajna itself. I am the after effect poise of Kriya. I am also the medicine as Brahma is inherent in it. No medicine is better than the contemplation of the Brahma. I am the mantra. When one remains absorbed within oneself, he finds his mind attuned with the prana-the source.  The process can be learnt from the guru. I am the clarified butter used for oblation in yajna. I am the fire of the yajna and the offering is done to Me only.
-Pitaham asya jagato mata dhatapitamahah
-Vedyam pavitram omkarah ruk saama yajur eva cha 16 (9/17)
+
+> Pitaham asya jagato mata dhatapitamahah
+> Vedyam pavitram omkarah ruk saama yajur eva cha 16 (9/17)
 
 ###### Translation: 
 
-aham (I) eva (certainly) asya (of this) jagatah (universe) pita (father) mata (mother) dhata (supporter) Pitamah (father of father i.e. God) vedyam (what is to be known) pavitram (that which purifies ) omkarah (om) ruk (the Rigveda) saama (Sama veda) Yajuh (the Yajur veda)
-I am the father of this universe, the mother, the support and the grandfather, I am the object of knowledge, the purifier and the syllable Om, I am also the Rig, the Sam and the Yajur Vedas.
+aham (I) eva (certainly) asya (of this) jagatah (universe) pita (father) mata (mother) dhata (supporter) Pitamah (father of father i.e. God) vedyam (what is to be known) pavitram (that which purifies ) omkarah (om) ruk (the Rigveda) saama (Sama veda) Yajuh (the Yajur veda).
 
+I am the father of this universe, the mother, the support and the grandfather, I am the object of knowledge, the purifier and the syllable Om, I am also the Rig, the Sam and the Yajur Vedas.
 
 ###### Spiritual commentary: 
 
 I am the grandfather (Brahma) of the world, I protect the movable things of the world which have been created by Me. I Myself am the grandfather of all. The secret of all this can be known from the guru. I am the object of knowledge. Nothing in this world is purer than Me. This body is the form of Om and I am in it. Rig, Sama, Yajur-these three when united, make Atharva. All the four sides are My form.
-Gatir bharta prabhuh saakshi nivasah sharanam suhrut
-Prabhavah pralayah sthanam nidhanam bijam avyayam 17 (9/18)
+
+> Gatir bharta prabhuh saakshi nivasah sharanam suhrut
+> Prabhavah pralayah sthanam nidhanam bijam avyayam 17 (9/18)
 
 ###### Translation: 
 
-gatih (goal) bharta (sustainer) prabhuh (Lord) sakshi (witness) nivasah (abode) sharanam (refuse) suhrut (most intimate friend) prabhavah (creation) pralayah (dissolution) sthanam (ground) nidhanam (resting place) avyayam (imperishable) bijam (seed)
+gatih (goal) bharta (sustainer) prabhuh (Lord) sakshi (witness) nivasah (abode) sharanam (refuse) suhrut (most intimate friend) prabhavah (creation) pralayah (dissolution) sthanam (ground) nidhanam (resting place) avyayam (imperishable) bijam (seed).
+
 I am the goal, the sutainer, the master, the witness, the abode and the most dear friend. I am the creation and the annhilation, the basis of everything, the resting and the eternal seed.
 
 
 ###### Spiritual commentary: 
 
 I am the goal. I am the person who sustains. I Myself have created Me. All are in Me. I am the only object to be remembered. So everybody should worship Me. I am manifested I the beautiful human body. All beings are produced from My mind and are dissolved in My mind. I am the special place where all can remain established in peace. I am the source, the seed or Brahma which has no decay.
-Tapami aham aham varsham nigrhnami utsrujami cha
-Amrutam chaiva mrtyuh cha sat asat cha aham arjuna 18(9/19)
+
+> Tapami aham aham varsham nigrhnami utsrujami cha
+> Amrutam chaiva mrtyuh cha sat asat cha aham arjuna 18(9/19)
 
 ###### Translation: 
 
@@ -383,102 +433,138 @@ Arjuna, I give heat and I withhold and send forth rain. I am both spirit and mat
 ###### Spiritual commentary: 
 
 When one achieves the power of creating something by mere wish, the he attains the supreme state. And that is Brahma. Death is also My form. You cannot attain liberation if you do not know how to die while living. I am both good and bad.
-Samo’ham sarvabhuteshu na me dveshyoasti na priyah ye bhajanti tu mam bhaktya mayi te teshu cha api aham 19 (9/29)
+
+> Samo’ham sarvabhuteshu na me dveshyoasti na priyah ye 
+> bhajanti tu mam bhaktya mayi te teshu cha api aham 19 (9/29)
 
 ###### Translation: 
 
 aham (I) sarva bhutesu (to all beings) samo (the same) me (to me) na (not) dveshyo (hateful) na (not) priyah (dear) asti (is) ye (those) tu (but) mam (me) bhaktya (with devotion) bhajanti (worship) te mayi (in me) ca (and) aham (I) api (too) teshu (in them).
+
 I am the same to all beings, to Me there is none hateful or dear. But those who worship Me with devotion, are in Me, and I too am in them.
 
 
 ###### Spiritual commentary: 
 
 I am equally present in all beings as the thread is present in a garland. I hate none, nor do I love any body. I love those most who worship Me with exclusive devotion and practices kriya sincerely. Staying in them, I, the inner self, practice kriya.
-Aham atma gudakesha sarvabhutashayasthitah
-Aham adih cha madhyam cha bhutanaam anta eva cha 20 (10/20)
+
+> Aham atma gudakesha sarvabhutashayasthitah
+> Aham adih cha madhyam cha bhutanaam anta eva cha 20 (10/20)
 
 ###### Translation: 
 
-gudakesha (O gudakesha, conqueror of sleep) sarva bhuta asaya sthitah (existent in the heart of all beings) adih (the beginning) cha (and) madhyam (middle)cha (and) bhutanam (of the creatures) anta (end) aham (I) eva (also)
+gudakesha (O gudakesha, conqueror of sleep) sarva bhuta asaya sthitah (existent in the heart of all beings) adih (the beginning) cha (and) madhyam (middle)cha (and) bhutanam (of the creatures) anta (end) aham (I) eva (also).
+
 I am the self, O gudakesa, conqueror of sleep, existent in the heart of all beings, am the beginning, the middle and also the end of all beings.
 
 
 ###### Spiritual commentary: 
 
 I am the breath. All beings are sustained by it. The soul is in the beginning, that is, in the father, then in the middle during the course of life till death, and also in rebirth; the breath continues.
-Kalo’smi lokakshayakrut pravruddho lokaan samahartum iha pravruttah
-Rite’pi tvah na bhavishyanti sarve ye’vasthitah pratyanikeshu yodhah 21 (11/32)
+
+> Kalo’smi lokakshayakrut pravruddho lokaan samahartum iha pravruttah
+> Rite’pi tvah na bhavishyanti sarve ye’vasthitah pratyanikeshu yodhah 21 (11/32)
 
 ###### Translation: 
 
 loka (of the worlds) kshaya krut (the destroyer) pravruddhah (mighty) kalah (time) samahartum (to destroy) iha (in this world) pravrittah (engaged) tvam (you) na (never) rite (without) api (even) pratyanikesu (on the opposite side) ye (who) yodhah (the soldiers) avasthitah (situated) sarve (all) na (never) bhavishyanti (will be).
+
+
 The Supreme personality of God head said -Time I am, the great destroyer of the worlds and I have  come here to destroy all people. With exception of you the pandavas, all the soldiers here on the hostile army will be slain.
 
 
 ###### Spiritual commentary: 
 
 Realization through the Kutastha-I am the embodiment of Time. I am engaged in the destruction of all the beings. 21,600 times of breath are taken during the course of one day and night. By controlling the breath, the yogi enters in small samadhi and then into great samadhi and suspends time. Then in that state of inner tranquillity he transcends Time. In other words, there remains nothings except tranquillity. So engage yourself in kriya practice. No warriors who are here except you will survive.
-Avibhaktam cha bhuteshu vibhaktam iva cha sthitam
-Bhutabhrartru cha taj jneyam grasishnu prabhavishnu cha 22 (13/16)
+
+> Avibhaktam cha bhuteshu vibhaktam iva cha sthitam
+> Bhutabhrartru cha taj jneyam grasishnu prabhavishnu cha 22 (13/16)
 
 ###### Translation: 
 
 bhutesu (in all living beings) cha (and) avibhaktam (without division) vibhaktam (dividied) cha (also) iva (as if) sthitam (situated) bhuta-bhartru (the maintainer of all living entities) cha (also) grasishnu (devouring) prabhavishnu (as a generating) cha (also) tat (that) jneyam (to be known).
+
 Although super soul appears to be divided among all beings. He is never divided. He is to be known as sustaining beings and the devouring as well as generating them. 
 
 
 ###### Spiritual commentary: 
 
 The same one Brahma is within all beings and things. He is without them also. He is the maintainer, the destroyer, as well as the creator of all beings.
-Purushah prakritistho hi bhunkte prakritijan gunan
-Kaaranam gunasango’sya sadasadyonijanmasu 23(13/21)
+
+> Purushah prakritistho hi bhunkte prakritijan gunan
+> Kaaranam gunasango’sya sadasadyonijanmasu 23(13/21)
 
 ###### Translation: 
 
 Hi (indeed) purusha (supreme being) prakritistho (seated in cosmic nature) prakritijan (born of prakriti) gunan (the three Gunas i.e sattva, rajas and tamas) bhunkte (experiences) asya (its) sadasadyonijanmasu (of birth in good and evil wombs) gunasango (attachment to the gunas) Kaaranam (the reason).
+
 Purusa, the Supreme Being seated in Prakriti, the cosmic nature experiences the Gunas born out of Prakriti, the reason of his birth in good and evil wombs is his attachment to the gunas.
-Spiritual commentary : Purusa is seated in Prakriti and the three gunas i.e ida, pingala and susumna, the three nad produced out of Prakriti. With the help of these gunas, he is enjoying the external world with attachment. Those gunas are making all beings work with desire and force them to enjoy by being born in good or bad wombs.
-Yaavat sanjaayate kinchit sattvam sthaavara jangamam
-Kshetra kshetrajna samyogaat tad viddhi bharatarshabha 24 (13/26)
-
-###### Translation: 
-
-bharatsabha (O Chief of Bharata) yavat (whatever) kinchit (anything) sthavara (not moving) jangam (moving) sattvam (existence) sanjaayete (comes into being) by the union between) kshetra (field of activity) and kshetranja (knower of the field)
-O, chief of Bharatas, know that whatever you see in existence, both the moving and unmoving is only a combination of the field of activities and the knower of the field.
 
 
 ###### Spiritual commentary: 
 
+Purusa is seated in Prakriti and the three gunas i.e ida, pingala and susumna, the three nad produced out of Prakriti. With the help of these gunas, he is enjoying the external world with attachment. Those gunas are making all beings work with desire and force them to enjoy by being born in good or bad wombs.
+
+> Yaavat sanjaayate kinchit sattvam sthaavara jangamam
+> Kshetra kshetrajna samyogaat tad viddhi bharatarshabha 24 (13/26)
+
+###### Translation: 
+
+bharatsabha (O Chief of Bharata) yavat (whatever) kinchit (anything) sthavara (not moving) jangam (moving) sattvam (existence) sanjaayete (comes into being) by the union between) kshetra (field of activity) and kshetranja (knower of the field).
+
+O, chief of Bharatas, know that whatever you see in existence, both the moving and unmoving is only a combination of the field of activities and the knower of the field.
+
+###### Spiritual commentary: 
+
 Whatever is created-both movable and immovable, the Ultimate Self is present in all those things. All manifested forms are the fields known as Prakriti. And the all pervading supreme Person is present in the individual self as the knower of the field. Therefore, if your realize that one Supreme Being and remain absorbed in Him, you attain the one and the only one Brahma. Thereafter nothing remains to be known or attained.
- Brahmano hi pratisthaham amrutasya avyayasya cha
-Shashvatasya cha dharmasya sukhasyaikantikasya cha 25 (14/27)
+
+> Brahmano hi pratisthaham amrutasya avyayasya cha
+> Shashvatasya cha dharmasya sukhasyaikantikasya cha 25 (14/27)
 
 ###### Translation: 
 
-hi (for) aham (I) brahmano (of Brahma) pratistha (the abode) avyayasya (the immutable) amrutasya (the immortal) cha (and) shashvatasya (everlasting) dharmasya (of Dharma) aikantikasya (Absolute) sukhasya (of Bliss) cha (and)
+hi (for) aham (I) brahmano (of Brahma) pratistha (the abode) avyayasya (the immutable) amrutasya (the immortal) cha (and) shashvatasya (everlasting) dharmasya (of Dharma) aikantikasya (Absolute) sukhasya (of Bliss) cha (and).
+
 For I am the abode of Brahman, the Immortal and Immutable, of everlasting Dharma and of Absolute Bliss.
-Spiritual Commentary: By continuous practice of kriya one is permanently established in Brahma and attains the state of immortality-i.e one becomes one with the Brahma. He is then immutable and indestructible. When everything becomes Brahma, that which is destroyed turns into Brahma as well. How can there be destruction when there when there is nothing but one object only? If one remains in the state of Bliss throughout day and night, then he certainly becomes one with Brahma. This is called Dharma-that is to remain established in the Self shunning attachment towards external objects is known as Dharma. To practice kriya without desire for any result is Dharma which is to be learnt from the guru. When one remains always fixed in this state, extreme Bliss is experienced. Such bliss is also experienced in greater or lesser degree in the after-poise state of kriya by those who practice kriya regularly. For the sake of attaining happiness, people are madly flattering “great” (!) men and becoming their slaves. But real great men are rare as observed by Ashtavakra, the great sage. But he who, by the power of his will and divine insight is always established in the Kutastha, is a real great man. But whatever is given by such great man, even that will give you happiness for sometime only. But the peace and happiness which is endless is seldom desired by ordinary people. People will have to develop longing for the ever lasting happiness.
-Yat adityagatam tejo jagad bhasayate akhilam
-Yat chandramasi yat chagnau tat tejo viddhi maamakam . 26 (15/12)
+
+
+
+###### Spiritual commentary: 
+
+By continuous practice of kriya one is permanently established in Brahma and attains the state of immortality-i.e one becomes one with the Brahma. He is then immutable and indestructible. When everything becomes Brahma, that which is destroyed turns into Brahma as well. How can there be destruction when there when there is nothing but one object only? If one remains in the state of Bliss throughout day and night, then he certainly becomes one with Brahma. This is called 
+
+Dharma-that is to remain established in the Self shunning attachment towards external objects is known as Dharma. To practice kriya without desire for any result is Dharma which is to be learnt from the guru. When one remains always fixed in this state, extreme Bliss is experienced. Such bliss is also experienced in greater or lesser degree in the after-poise state of kriya by those who practice kriya regularly. 
+
+For the sake of attaining happiness, people are madly flattering “great” (!) men and becoming their slaves. But real great men are rare as observed by Ashtavakra, the great sage. But he who, by the power of his will and divine insight is always established in the Kutastha, is a real great man. But whatever is given by such great man, even that will give you happiness for sometime only. But the peace and happiness which is endless is seldom desired by ordinary people. People will have to develop longing for the ever lasting happiness.
+
+> Yat adityagatam tejo jagad bhasayate akhilam
+> Yat chandramasi yat chagnau tat tejo viddhi maamakam . 26 (15/12)
 
 ###### Translation: 
 
-Aditya gatam (in the sunshine) yat (that which) tejah (splendour) akhilam (entire) jagad (world) bhasayate (illuminates) chandramasi (in the moon) cha (also) yat (that) agnau (in fire) cha (also) yat (that which) tat (that) tejo (splendours) maamakam (Mine) viddhi (understand)
+Aditya gatam (in the sunshine) yat (that which) tejah (splendour) akhilam (entire) jagad (world) bhasayate (illuminates) chandramasi (in the moon) cha (also) yat (that) agnau (in fire) cha (also) yat (that which) tat (that) tejo (splendours) maamakam (Mine) viddhi (understand).
+
 The splendour of the sun, which dissipates the darkness of this world, comes from Me and the splendour of the moon and the splendour of the fire are also from Me.
 
 
 ###### Spiritual commentary: 
 
 As the manifested world is illuminated by the rays of the sun so the energy (light) is revealed because of the light of the kutastha i.e. the energy (light) of the Ultimate Self which has come from the sky (akasha).
-In the sky one can see nothing, but in the sky of consciousness the Ultimate Self is present in the most minute atom there exists many worlds.
-Among these worlds you are one. You do not really know how tiny and unimportant you are. There is no limit to your ego. Yet you explain who you are.
-Thus in the atoms of energy in the fire and the moon is manifested My from. When the seeker realizes these aspects, he attains the knowledge of the Brahma.
+
+In the sky one can see nothing, but in the sky of consciousness the Ultimate Self is present in the most minute atom there exists many worlds.Among these worlds you are one. You do not really know how tiny and unimportant you are. There is no limit to your ego. Yet you explain who you are. Thus in the atoms of energy in the fire and the moon is manifested My from. When the seeker realizes these aspects, he attains the knowledge of the Brahma.
+
 Only by practicing kriya one can attain such realization or absolute knowledge. Mere words of wisdom are of no value.
 This is realized only in the after effect poise of kriya.
-Gaam avisya cha bhutani dharayami aham ojasa
-Pushnami chaushadhih sarvah somo bhutva rasatmakah 27 (15/13)
 
-Translation : aham (I) cha (also) gaam (the planets) aavishya (entering) ojasa  (by my energy) bhutani (the living entities) dharayami (sustain) cha (and) rasatmakah (supplying the juice) somo (the moon) bhutva (becoming) sarva (all) cha (and) aushadhih (vegetables) pushnami (am nourishing)
+> Gaam avisya cha bhutani dharayami aham ojasa
+> Pushnami chaushadhih sarvah somo bhutva rasatmakah 27 (15/13)
+
+
+
+###### Translation: 
+
+aham (I) cha (also) gaam (the planets) aavishya (entering) ojasa  (by my energy) bhutani (the living entities) dharayami (sustain) cha (and) rasatmakah (supplying the juice) somo (the moon) bhutva (becoming) sarva (all) cha (and) aushadhih (vegetables) pushnami (am nourishing)
+
 I enter into each planet and by My energy they stay in orbit. I become the moon and thereby supply the juice of life to all vegetables.
 
 
@@ -486,60 +572,75 @@ I enter into each planet and by My energy they stay in orbit. I become the moon 
 
 Through the rays of the moon I supply juice in the plants and trees of the earth and make them useful as medicine.
 When a yogi draws that juice forcibly with attachment and enters into the qualities of a manifested thing then his kriya practice is not proper. The Ultimate Self is Infinite and so are His qualities. Brahma is infinite infinitum. The individual entity of the sadhak gets lost in that affinity.
-Aham vaishvanaro bhutva praninaam deham ashritah
-Pranaapaana samayuktah pachami annam chaturvidham 28 (15/14)
+
+> Aham vaishvanaro bhutva praninaam deham ashritah
+> Pranaapaana samayuktah pachami annam chaturvidham 28 (15/14)
 
 ###### Translation: 
 
 aham (I)vaishnvanarah (my plenary portion as digestive fire) bhutva (becoming) praninaam (of all living entities) deham (in bodies) ashritah (situated) praanapaana samayuktah (keeping in balance prana and apana) chaturvidham (before kinds) annam (food stuff) pachami (digest)
-I am the (digestive) fire in the bodies of all living entities and I , joined with the air of life, outgoing and incoming , digest the four kinds of food stuff.
+
+I am the (digestive) fire in the bodies of all living entities and I, joined with the air of life, outgoing and incoming, digest the four kinds of food stuff.
 
 
 ###### Spiritual commentary: 
 
 I digest the four kinds of food by breaking, chewing, licking and drinking through the energy (fire) generated from the equilibrium of prana and apana.  So long as that energy (fire) present in the physical body, the individual being remains alive. When that energy (fire) is gone, life is gone. People say that the body has become cold. The fire is tangible proof of life in the physical body yet people are not interested in kriya. When the presence of such fire or energy cannot make them interested for kriya, then let them do what they want.
-Sarvasya chaham hridi samnivistho mattah smrtih jnanam apohanam cha
-Vedaih cha sarvaihi aham eva vedyo vedantakrid vedavit eva chaham 29 (15/15)
+
+> Sarvasya chaham hridi samnivistho mattah smrtih jnanam apohanam cha
+> Vedaih cha sarvaihi aham eva vedyo vedantakrid vedavit eva chaham 29 (15/15)
 
 ###### Translation: 
 
 aham cha (I only) sarvasya (of all beings) hridi (in the heart) smrtih (remembering) jnanam (knowledge) cha (and) apohanam cha (forgetfulness also) aham eva (I only) sarvarih (all) vadais cha (by the vedas) vedyo (knowable) Vedanta krid (the compiler of the Vedanta) veda vit (the knower of the vedas) aham eva (I am also)
+
 I am seated in every one’s heart and from Me come remembrance, knowledge and forgetfulness. By all the Vedas I am to be known. I indeed am the compiler of Vedanta and I am the knower of the Vedas.
 
 
 ###### Spiritual commentary: 
 
 That which is firmly established in the hearts of all and is experienced by the practice of Yonimudra which is to be learnt from the guru. But people hold amulet and make propaganda everywhere by beating drums and giving lectures. The after-effect poise of kriya is experienced in the heart. That state is also called pure knowledge. If you want to have total knowledge the remain in the after-effect poise of kriya. Because in that state there exists no desire for material things, no desire for knowledge even and no other object remains except yourself. When everything culminates into One and you have yourself become that One, then everything is reduced to that One. Therefore, everything becomes known.
+
 People are mad for knowledge but the knowledge which is worth knowing can be known only if you remain in the after-effect poise of kriya. There cannot be any knowledge without two- the knower and the known. In the after-effect poise of kriya everything becomes One, the second ceases to exist. Therefore, in the absence of two, there comes to an end to knowledge. So, the state which is to be realized through the study of Vedanta, can be attained in the twinkling of an eye and it can put an end to all superficial knowledge.
+
 Om is the object of knowledge, it ought to be known. In the after-effect poise of kriya that too becomes known spontaneously. The word Veda comes from the root Vid i.e to know. You can have that Veda (knowledge) by the grace of guru. That is, if you are kind to yourself, you will be able to know immediately. People remain indifferent to the most excellent thing which is Om.
-Dvau imau purushau loke ksharah chaksara eva ca
-Ksharah sarvani bhutani kutastho’ kshara uchyate 30 (15/16)
+
+> Dvau imau purushau loke ksharah chaksara eva ca
+> Ksharah sarvani bhutani kutastho’ kshara uchyate 30 (15/16)
 
 ###### Translation: 
 
-kshara (fallible) cha (and) akshara (infalliable) eva (also) imau (this) dvau (two) purushau (living entities) loke (in the world) sarvani bhutani (all living entities) kshara (fallible) kutastha (in oneness, soul) akshara (infallible) uchyate (is said)
+kshara (fallible) cha (and) akshara (infalliable) eva (also) imau (this) dvau (two) purushau (living entities) loke (in the world) sarvani bhutani (all living entities) kshara (fallible) kutastha (in oneness, soul) akshara (infallible) uchyate (is said).
+
 There are two classes of beings, the fallible and the infallible. In the material world every living being is fallible and in the spiritual world soul in the kutastha is infallible.
 
 
 ###### Spiritual commentary: 
 
 There are two purushas- one is kshara (the perishable or the individual) and the other is kutastha (the eternal being or the inner self). He who has attachment is kshara or transitory being and he who keeps his attention inward on the kutastha is akshara i.e. the Eternal Being. Therefore, all beings are transitory i.e. kshara. Only those realized person who hold on to kutastha are immortal. They attain tranquillity but nobody can recognize them. Kutastha is realized only by following the words of the guru. If guru does not show kutastha then you cannot see.
-Uttamah purushah tu anyah paramatma iti udahrutah
-Yo lokatrayam avishya bibharti avyayah Ishvarah 31 (15/17)
+
+> Uttamah purushah tu anyah paramatma iti udahrutah
+> Yo lokatrayam avishya bibharti avyayah Ishvarah 31 (15/17)
 
 ###### Translation: 
 
 anyah tu (but another) uttamah (the best) purushah (personality) paramatma (supreme soul) udahrutah (is said) yah (who) avyaya (inexhaustible) Isvarah (the Lord) lokatrayam (three divisions of the universe) avishya (entering) bibharti (is maintaining).
+
 Besides these two (ksara and aksara), there is the greatest personality, the Supreme Soul, the imperishable Lord Himself who has entered the three worlds and is maintaining them.
 
 
 ###### Spiritual commentary: 
 
-By regular concentration at the point between the eyebrows the seeker sees the Supreme Person (uttama purushah) in the kutastha. The Supreme Person is described in the scriptures as the Supreme Self (Paramatma) who is in all the three worlds (heaven, earth and patal)
+By regular concentration at the point between the eyebrows the seeker sees the Supreme Person (uttama purushah) in the kutastha. The Supreme Person is described in the scriptures as the Supreme Self (Paramatma) who is in all the three worlds (heaven, earth and patal).
+
 These three worlds are in this physical body. In the area between toes to the navel are seven spheres of the patal. From the navel to the throat are seven spheres of the earth, and from the throat to the aperture at the crown of the head (Brahmarandhara) are seven spheres of heaven. Entering into this body of skin and bones the Supreme Self is maintaining Himself.
-He is Immutable (avyaya), Indestructable (Avinashi) as He is present in and around everything in subtle form. There is nothing except Him and so, there is no scope for any change. When everything is that One, then how can there be any decay? He is God, the doer, doing everything and at the same time as Brahma doing nothing at all. All activities pertain to the gross body which is transitory.
-Yasmat ksharam atito’aham aksharat api chottamah 
-Ato’smi loke vede cha prathitah purushottamah 32 (15/18)
+
+He is Immutable (avyaya), Indestructable (Avinashi) as He is present in and around everything in subtle form. There is nothing except Him and so, there is no scope for any change. When everything is that One, then how can there be any decay? 
+
+He is God, the doer, doing everything and at the same time as Brahma doing nothing at all. All activities pertain to the gross body which is transitory.
+
+> Yasmat ksharam atito’aham aksharat api chottamah 
+> Ato’smi loke vede cha prathitah purushottamah 32 (15/18)
 
 ###### Translation: 
 
@@ -557,7 +658,11 @@ Sa sarvavid bhajati mam sarva bhavena bharata 33 (15/19)
 
 Bharata (O son of Bharata) evam (thus) yo (any one) asammudho (without a doubt) mam (me) purushottamam (Supreme Personality) janati (knows) sah (he) sarvabhavena (in all respects) mam (me) bhajati (renders devotional services) sarvavid (knower of everything)
 Whoever knows Me as the Supreme Personality without doubting is the knower of everything. He, therefore, engages himself in full devotional service to Me, O Son of Bharata.
-Spiritual Commentary: He who worships Me sincerely (i.e who practices kriya as per the instructions of the guru), shunning attachment towards worldly things knows the Supreme Person. He attains perfect knowledge and knows the Supreme Person and holding on the after effect poise of kriya, wherever he turns his mind, he sees Brahma, the Supreme Person.
+
+
+###### Spiritual commentary: 
+
+ He who worships Me sincerely (i.e who practices kriya as per the instructions of the guru), shunning attachment towards worldly things knows the Supreme Person. He attains perfect knowledge and knows the Supreme Person and holding on the after effect poise of kriya, wherever he turns his mind, he sees Brahma, the Supreme Person.
 Svabhavajena Kaunteya nibaddhah svena karmana
 Kartum necchasi yat mohat karishyasi avasho’pi tat 34 (18/60)
 
@@ -706,7 +811,11 @@ Shraddhavanto anasuyanto muchyante te’pi karmabhih 9 (3/31)
 
 ye (those) manavah (human beings) shraddhavanto (with devotion) ana suyanto (without envy) me (my) idam (these) matam (injunctions) nityam (always as an eternal function) anutisthhanti (execute regularly) te api (even all of them) karmabhih (from the bondage of the law of fruitful actions) muchyante (become free)
 Those persons who execute their duties accordingly to My injunctions and who follow this teaching faithfully, without envy and without purpose of finding fault become free from the bondage of fruitful actions.
-Spiritual commentary : He who follows My teaching and remains established in Brahma, becomes free from all sins.
+
+
+###### Spiritual commentary: 
+
+ He who follows My teaching and remains established in Brahma, becomes free from all sins.
 Karmanyakarma yah pasyed akarmani ca karma yah
 Sa buddhiman manushyeshu sa yuktah kritsna karmakrit. 10 (4/18)
 
@@ -799,7 +908,11 @@ Acharyopasanam shaucham sthairyam atma vinigrahah 17 (13/8)
 
 amaanitvam (humility which means absence of ego, self praise and full of attributes of reality/ truth) adambhitvam (lack of pride) ahimsa (nonviolence) kshantir (tolerance) aarjavam (simplicity) acharyopasanam (service of spiritual master) shaucham (cleanliness) sthairyam (steadfastness) atmavinigrahah (self-control)
 Humility, lack of pride, nonviolence, tolerance, simplicity, service to spiritual master, cleanliness, steadfastness and self control are many aspects of knowledge.
-Spiritual commentary : Absorbed in the after effect poise of kriya one becomes free from ego and gets rid of pride and feeling of importance. He should practice nonviolence, simplicity and loyalty to attain tranquillity through practice of kriya.
+
+
+###### Spiritual commentary: 
+
+ Absorbed in the after effect poise of kriya one becomes free from ego and gets rid of pride and feeling of importance. He should practice nonviolence, simplicity and loyalty to attain tranquillity through practice of kriya.
 Idriyartheshu vairagyam anahamkaram eva cha
 Janmamrityu jaravyadhi duhkha doshanudarshanam. 18 (13/9)
 
@@ -819,7 +932,11 @@ Nityam cha sama chittatvam ishtanishtopapattishu 19 (13/10)
 
 putra dara grhadishu (for son, wife, home etc.) asaktih (being without attachment) anabhishvangah (being without association) ishtanishtopapattishu (having obtained the desirable and undesirable) cha (also) nityam (constant) samachittatvam (equilibrium)
 Remain detached and free from entanglement with children, wife, home and the rest always mentally balanced in pleasant and unpleasant events.
-Spiritual commentary : He is detached internally towards his wife, children and home. He treats good and bad alike.
+
+
+###### Spiritual commentary: 
+
+ He is detached internally towards his wife, children and home. He treats good and bad alike.
 Mayi chanaya yogena bhaktih avyabhicharini
 Vivikta-desha-sevitvam aratih jana samsadi 20 (13/11)
 
@@ -866,7 +983,11 @@ Shabdadin vishayan tyaktva raga dveshau vyudasya cha
 
 vishuddha (fully purified) buddhya (with the intelligence) yukto (engaged) dhritya (with determination and patience) atmanam (the self) niyamya (regulating) cha (also) shabdadin (such as sound) vishayan (sense objects) tyaktva (giving up) ragadveshau (attachment and hatred) cha (also) vyudasya (laying aside)
 Being purified by his intelligence controlling the mind with determination, giving up the objects of sense gratification, he also remains free from attachment and hatred.
-Spiritual commentary : Having attained the tranquil state at the after effect poise of kriya and holding on to the Ultimate Self, the kriyaban remains absorbed by means of concentration, meditation and samadhi ignoring sounds, desires and violence which naturally go away at the after effect poise of kriya.
+
+
+###### Spiritual commentary: 
+
+ Having attained the tranquil state at the after effect poise of kriya and holding on to the Ultimate Self, the kriyaban remains absorbed by means of concentration, meditation and samadhi ignoring sounds, desires and violence which naturally go away at the after effect poise of kriya.
 Viviktva sevi laghvashi yata vak kaya manasah
 Dhyana yogaparo nityam vairagyam samupashritah. 24 (18/52)
 
@@ -878,7 +999,7 @@ One who lives in a secluded place, who eats little, who controls his body, mind 
 
 ###### Spiritual commentary: 
 
-A sincere kriyaban stays within himself, he eats less, speaks as little as possible. He considers himself as insignificant and without allowing the mind to waver, practices kriya. He practices pranayama 1,728 times daily and occasionally 21,736 times. In fact he practices pranayama day and night and always enjoys the everlasting peace. This state is achieved automatically by kriya practice. When he holds onto the self always , his mind cannot have desires except for the Ultimate Self (Brahma). This is called vairagya (renunciation). He who attains this state is truly a vairagi.
+A sincere kriyaban stays within himself, he eats less, speaks as little as possible. He considers himself as insignificant and without allowing the mind to waver, practices kriya. He practices pranayama 1,728 times daily and occasionally 21,736 times. In fact he practices pranayama day and night and always enjoys the everlasting peace. This state is achieved automatically by kriya practice. When he holds onto the self always, his mind cannot have desires except for the Ultimate Self (Brahma). This is called vairagya (renunciation). He who attains this state is truly a vairagi.
 Devotion oriented
 Patram pushpam phalam toyam yo me bhaktya prayacchati
 Tad aham bhaktyupahritam ashnami prayatatmanah 
@@ -888,12 +1009,20 @@ Tad aham bhaktyupahritam ashnami prayatatmanah
 
 yah (whoever) me (unto me) patram (a leaf) pushpam (a flower) phalam (a fruit) toyam (water) prayacchati (offers) aham (I) prayatatmanah (from one with pure consciousness) bhakyupahritam (offered in devotion) ashnami (accept)
 If one with pure consciousness and with devotion offers Me a leaf, a flower, a fruit or water, I accept them.
-Spiritual commentary : Having sincere belief in the words of his guru, when someone offers Me a leaf, a flower, a fruit or water with real devotion, I accept them all. As some rituals, though false, are accepted as true and followed in sincere belief, in the same way a true seeker, though knows the worldly activities to be unreal, performs them by accepting them as true.
+
+
+###### Spiritual commentary: 
+
+ Having sincere belief in the words of his guru, when someone offers Me a leaf, a flower, a fruit or water with real devotion, I accept them all. As some rituals, though false, are accepted as true and followed in sincere belief, in the same way a true seeker, though knows the worldly activities to be unreal, performs them by accepting them as true.
 Yat karoshi yad ashnasi yaj juhoshi dadasi yat
 Yat tapasyasi Kaunteya tat kurushva mad arpanam
 26 (9/27)
 
-Translation : Kaunteya (O son of Kunti) yat (whatever) karoshi (you do) yat asnani (whatever you eat) yat juhoshi (whatever you offer) yat dadasi (whatever you give away) yat tapasyasi (whatever austerity you perform) tat (that) madarpanam (and offering unto me) kurushva (you do)
+
+
+###### Translation: 
+
+ Kaunteya (O son of Kunti) yat (whatever) karoshi (you do) yat asnani (whatever you eat) yat juhoshi (whatever you offer) yat dadasi (whatever you give away) yat tapasyasi (whatever austerity you perform) tat (that) madarpanam (and offering unto me) kurushva (you do)
 Whatever you do, whatever you eat, whatever you offer or give away, and whatever austerities you perform; do that, O son of Kunti, as an offering to Me.
 
 
@@ -970,7 +1099,11 @@ Samah Shatrau cha mitre cha tatha manapamanayoh
 Shitoshna-sukha-duhkheshu samah sangavivarjitah 
 32 (12/18)
 
-Translation : shatrau (to an enemy) mitra cha (also to a friend) tatha manapamanayoh (so in honour and dishonour) samah (equal) shitoshna-sukha-duhkheshu (in cold and heat, in happiness and distress) samah (equipoised) sanga vivarjitah (free from all association).
+
+
+###### Translation: 
+
+ shatrau (to an enemy) mitra cha (also to a friend) tatha manapamanayoh (so in honour and dishonour) samah (equal) shitoshna-sukha-duhkheshu (in cold and heat, in happiness and distress) samah (equipoised) sanga vivarjitah (free from all association).
 One who is equal to friends and enemies, who is equipoised in honour and dishonour, heat and cold, happiness and distress, fame and infamy, is always free from contaminating association.
 
 
@@ -1007,7 +1140,11 @@ Brahma-bhutah prasannatma na shochati na kankshati
 Samah sarveshu bhuteshu mad bhaktim labhate paraam
 35 (18/54)
 
-Translation : brahma bhutah (being one with the Lord) prasannatma (fully joyful) na shochati (never laments) na (never) kankshati (desires) sarveshu (all) bhuteshu (to beings) samah (equally disposed) param (transcendental) mad bhaktim (devotion to me) labhate (attains)
+
+
+###### Translation: 
+
+ brahma bhutah (being one with the Lord) prasannatma (fully joyful) na shochati (never laments) na (never) kankshati (desires) sarveshu (all) bhuteshu (to beings) samah (equally disposed) param (transcendental) mad bhaktim (devotion to me) labhate (attains)
 One who is transcendentally situated, realizes the Supreme Brahman and becomes fully joyful. He never laments or desires to have anything. He is equally disposed towards every living entity. In that state he attains pure devotion to Me.
 
 
@@ -1060,7 +1197,7 @@ O son of Kunti, the non-permanent appearance of happiness and distress and their
 
 ###### Spiritual commentary: 
 
-The body is made of five elements, that is, earth, water, fire, air and ether and also of muladhar, svadhishthan , manipur, anahat, vishuddha, akaar, ukaar, makaar , naad and bindu. They exist, dissolve and are experienced by air. Beyond them there is the Kutastha Brahma at ajna centre, where when the air is stilled, soundless sound, bindu, naad and the past are known. These are described in scriptures. There is a kind of joy which is known as Supreme Bliss. There is intoxication in this Bliss. So, when one becomes free from the sense perceptions, he becomes free from pain and pleasure. So long as one is attached with the senses, so long he will feel happiness and sorrow. Observe that all experiences are due to sense perceptions.
+The body is made of five elements, that is, earth, water, fire, air and ether and also of muladhar, svadhishthan, manipur, anahat, vishuddha, akaar, ukaar, makaar, naad and bindu. They exist, dissolve and are experienced by air. Beyond them there is the Kutastha Brahma at ajna centre, where when the air is stilled, soundless sound, bindu, naad and the past are known. These are described in scriptures. There is a kind of joy which is known as Supreme Bliss. There is intoxication in this Bliss. So, when one becomes free from the sense perceptions, he becomes free from pain and pleasure. So long as one is attached with the senses, so long he will feel happiness and sorrow. Observe that all experiences are due to sense perceptions.
 Svadharman api chavekshya na vikampitum arhasi
 Dharmyat hi yuddhat shreyah anyat kshatriyasya na vidyate
 3 (2/31)
@@ -1161,7 +1298,11 @@ Shuni chaiva shvapake cha paditah samadarshinah
 
 panditah (wise men) vidya vinaya sampanne (fully equipped with education and gentleness) brahmane (in brahman) gavi (cow) hastini (elephant) shuni (in dog) shvapake cha (in an out caste) samdarshinah (who see with equal vision)
 Wise man who is fully equipped with education and knowledge see with equa vision a brahmana, a cow an elephant, a dog and an outcast dog eater.
-Spiritual commentary : A realized person will treat a good, learned and polite brahman holding sacred water in a kosa vessel, and an outcast dog eater as equal. At the after effect poise of kriya the realized person like a drunken man, does not make such differences.
+
+
+###### Spiritual commentary: 
+
+ A realized person will treat a good, learned and polite brahman holding sacred water in a kosa vessel, and an outcast dog eater as equal. At the after effect poise of kriya the realized person like a drunken man, does not make such differences.
 Ihaiva taihi jitah sargah yesham samye sthitam manah
 Nirdosham hi samam brahma tasmad brahmani te sthitah                                                                                      11 (5/19) 
 
@@ -1169,7 +1310,11 @@ Nirdosham hi samam brahma tasmad brahmani te sthitah                            
 
 yesham (whose) manah (mind) samye (in evenness) sthitam (fixed) iha (in this world) eva (verily) taihi (by them) sargah (existence) jitah (is conquered) hi (indeed) brahma (Brahman) samam (even) nirdosham (without imperfection) tasmat (therefore) te (they) brahmani (in Brahman) sthitah (are established)
 Relative existence has been conquered by them, even in this world, whose mind rests in evenness, since Brahman is even and is without imperfection; therefore they indeed rest in Brahma.
-Spiritual commentary : He who is poised in equilibrium enjoys happiness in this very world. He has become one with the Brahma. He finds no fault in anybody and is equal to everybody. He is ever established Brahma.
+
+
+###### Spiritual commentary: 
+
+ He who is poised in equilibrium enjoys happiness in this very world. He has become one with the Brahma. He finds no fault in anybody and is equal to everybody. He is ever established Brahma.
 Sparshan kritva bahir bahyan chakshuh chaivantare bhruvoh
 Pranapanau samau kritva nasabhyantara charinau
  12 (5/27)
@@ -1251,7 +1396,7 @@ He who is regulated in his habits of eating, sleeping, recreation and work can m
 
 ###### Spiritual commentary: 
 
-One should eat, move, sleep , make efforts and work by remaining in the after effect poise of kriya. Otherwise you will not succeed in yoga practice. If you follow the disciplines you will not face difficulty.
+One should eat, move, sleep, make efforts and work by remaining in the after effect poise of kriya. Otherwise you will not succeed in yoga practice. If you follow the disciplines you will not face difficulty.
 Yam labdhva chaparam labhdam manyate nadhikam tatah
 Yasmin sthito na duhkhena gurunapi vichalyate 
 19 (6/22)
