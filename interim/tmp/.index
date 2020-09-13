@@ -2,9 +2,11 @@
   "0": "<li><a class = \"page\" href=\"19\">Salutation To The Bhagavad Gita</a> <span class=\"flex\">19</span> </li>",
   "1": "<li><a class = \"page\" href=\"23\">Invocation To Lord Krishna</a> <span class=\"flex\">23</span> </li>",
   "2": "<li><a class = \"page\" href=\"25\">Om Guru</a> <span class=\"flex\">25</span> </li>",
-  "3": "<li><a class = \"page\" href=\"71\">Procedures Of</a> <span class=\"flex\">71</span> </li>",
-  "4": "<li><a class = \"page\" href=\"71\">Action, Wisdom And Devotion</a> <span class=\"flex\">71</span> </li>",
-  "5": "<li><a class = \"page\" href=\"71\">Action Oriented</a> <span class=\"flex\">71</span> </li>",
-  "6": "<li><a class = \"page\" href=\"149\">Hari</a> <span class=\"flex\">149</span> </li>",
-  "7": "<li><a class = \"page\" href=\"149\">Om Tat Sat</a> <span class=\"flex\">149</span> </li>"
+  "3": "<li><a class = \"page\" href=\"72\">Action Oriented</a> <span class=\"flex\">72</span> </li>",
+  "4": "<li><a class = \"page\" href=\"86\">Wisdom Oriented</a> <span class=\"flex\">86</span> </li>",
+  "5": "<li><a class = \"page\" href=\"98\">Devotion Oriented</a> <span class=\"flex\">98</span> </li>",
+  "6": "<li><a class = \"page\" href=\"113\">Unification With Lord Krishna</a> <span class=\"flex\">113</span> </li>",
+  "7": "<li><a class = \"page\" href=\"153\">Conclusion</a> <span class=\"flex\">153</span> </li>",
+  "8": "<li><a class = \"page\" href=\"154\">Hari</a> <span class=\"flex\">154</span> </li>",
+  "9": "<li><a class = \"page\" href=\"154\">Om Tat Sat</a> <span class=\"flex\">154</span> </li>"
 }

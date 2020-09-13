@@ -64,7 +64,7 @@ Purulia, West Bengal
 
 Sri Sri Paramhansa Yogananda Giriji Maharaj
 
-![pic]
+![pic] // Adjusted directly on manuscript.
 
 ---
 
@@ -90,7 +90,6 @@ O Son of Pritha, I surely reside at the place where people recite, read, discuss
 - Who is Vasudeva Krishna? What are his glories?
 - Procedures relating to action, wisdom and devotion
 - Unification with Lord Krishna
-
 
 
 
