@@ -1,10 +1,10 @@
 # THE BOOK
 
-108 Verses of Gita. Read the book <a href="https://bubblin.io/book/the-blind-musician-by-vladimir-galaktionovich-korolenko" class="cover">here</a>.
+108 Verses of Gita. Read the book <a href="https://bubblin.io/book/a-108-verses-of-the-gita-by-swami-bidyananda-giriji-maharaj" class="cover">here</a>.
 
 
 [![forthebadge](https://forthebadge.com/images/badges/built-by-hipsters.svg)](https://bubblin.io/about)
-<a href="https://bubblin.io/book/the-blind-musician-by-vladimir-galaktionovich-korolenko" class="cover"><img src="https://camo.githubusercontent.com/6d0507b14426923c8c4afad849afd1c8391597d7/68747470733a2f2f666f7274686562616467652e636f6d2f696d616765732f6261646765732f636865636b2d69742d6f75742e737667" alt="forthebadge" data-canonical-src="https://forthebadge.com/images/badges/check-it-out.svg" style="max-width:100%;"></a>
+<a href="https://bubblin.io/book/a-108-verses-of-the-gita-by-swami-bidyananda-giriji-maharaj" class="cover"><img src="https://camo.githubusercontent.com/6d0507b14426923c8c4afad849afd1c8391597d7/68747470733a2f2f666f7274686562616467652e636f6d2f696d616765732f6261646765732f636865636b2d69742d6f75742e737667" alt="forthebadge" data-canonical-src="https://forthebadge.com/images/badges/check-it-out.svg" style="max-width:100%;"></a>
 [<img src="https://raw.githubusercontent.com/marvindanig/assets/master/bubblin.png" width="44px" title="Bubblin Superbooks">](https://bubblin.io)
 
 
@@ -21,7 +21,7 @@ This book is _offline-first_. Is uses a Service Worker under the hood, so no exp
 
 
 
-<a href="https://bubblin.io/book/the-blind-musician-by-vladimir-galaktionovich-korolenko" class="cover"><img src="https://camo.githubusercontent.com/3d05c191fd879f30eee14672539100b9d74e23e5/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f5375706572626f6f6b2d5075626c69736865642d627269676874677265656e2e737667" alt="Publication: Live" data-canonical-src="https://img.shields.io/badge/Superbook-Published-brightgreen.svg" style="max-width:100%;"></a>
+<a href="https://bubblin.io/book/a-108-verses-of-the-gita-by-swami-bidyananda-giriji-maharaj" class="cover"><img src="https://camo.githubusercontent.com/3d05c191fd879f30eee14672539100b9d74e23e5/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f5375706572626f6f6b2d5075626c69736865642d627269676874677265656e2e737667" alt="Publication: Live" data-canonical-src="https://img.shields.io/badge/Superbook-Published-brightgreen.svg" style="max-width:100%;"></a>
 [![PRs Welcome](https://img.shields.io/badge/PRs-welcome-brightgreen.svg?style=flat-square)](http://makeapullrequest.com)
 [![Maintenance](https://img.shields.io/badge/Maintained%3F-yes-green.svg)](https://bubblin.io/cover/we-by-eugene-zamyatin#frontmatter)
 [![Blueoak license](https://img.shields.io/badge/Blueoak-Council-blue.svg)](https://blueoakcouncil.org/license/1.0.0)
@@ -87,7 +87,7 @@ Translation to other languages or new takes of the current text itself can earn 
 
 ### SOURCE:
 
-The scroll (or file) of this book was sourced from [Gutenberg.org](http://gutenberg.org).
+The scroll (or file) of this book was sourced from Paramhansa Yogananda Ashram, Puruliya, West Bengal.
 
 
 ### CONTACT US
@@ -96,7 +96,7 @@ The scroll (or file) of this book was sourced from [Gutenberg.org](http://gutenb
 
 ## LICENSE
 
-The body of work on this book i.e. manuscript (text, illustrations etc.) is either in public domain or is available under a Free Culture license as indicated below:
+The body of work on this book i.e. manuscript (text, illustrations etc.) is either in public domain or is available under a license to the public by the publisher:
 
 [![forthebadge](https://forthebadge.com/images/badges/cc-by.svg)](https://creativecommons.org/licenses/by/4.0/)
 
