@@ -48,10 +48,26 @@ body:before {
   display: block;
 }
 
-h1 {
+h2 {
+  font-size: 5vw;
+  margin-top: 5vmin;
+}
+
+.red {
   color: rgb(241, 81, 81);
 }
 
-h2 {
-	font-size: 5vw;
+.l {
+  font-size: 10vw;
+  line-height: calc(1 * 4vw * 1.50);
+}
+
+.s {
+  font-size: 7vw;
+  line-height: calc(1.5 * 4vw * 1.5);
+}
+
+.xs {
+  font-size: 5vw;
+  line-height: calc(1.5 * 4vw * 1.5);
 }

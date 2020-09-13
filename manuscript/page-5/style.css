@@ -11,3 +11,11 @@
 .pad-vertically{
 	padding-top: 10vh;
 }
+
+h1, h3 {
+  line-height: 1.4;
+}
+
+h2 {
+  font-size: 80%;
+}
