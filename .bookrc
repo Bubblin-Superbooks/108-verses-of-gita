@@ -1,5 +1,5 @@
 {
-  "name": "108 Verses of Gita",
+  "name": "A 108 Verses of The Gita",
   "type": "text",
   "has_page_numbers": false,
   "cover": {
@@ -10,13 +10,14 @@
     "synopsis": ""
   },
   "status": "draft",
-  "asset_url": "",
-  "book_url": "",
+  "asset_url": "https://raw.githubusercontent.com/marvindanig/108-verses-of-gita/blob/master/assets",
+  "book_url": "https://bubblin.io/preview/108-verses-of-gita-by-swami-bidyananda-giriji-maharaj",
   "mode": {
     "HTML": "html",
     "CSS": "css",
     "JS": "js",
     "HEAD": "html"
   },
-  "book_id": 1384
+  "book_id": 1384,
+  "start_page": 19
 }

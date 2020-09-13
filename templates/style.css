@@ -107,7 +107,6 @@ p.start-chapter {
 p.start-chapter:first-letter {
   display: inline-block;
   margin: 0 1vw 0 0;
-  float: left;
   font-size: calc(3 * 4vw); /* three times normal size */
   line-height: calc(2 * 4vw * 1.50 * 0.95);
   font-family: 'Berkshire Swash', cursive;
@@ -117,6 +116,8 @@ p.start-chapter:first-letter {
 blockquote {
   text-align: center;
   font-style: italic;
+  font-size: 80%;
+  background-color: rgb(240, 234, 224);
   position: relative;
   quotes: "\201C""\201D""\2018""\2019";
   margin: calc( 1/2 * (150vh *(1115/1443))/100 * 7/5) auto;
@@ -145,11 +146,12 @@ code {
   font-synthesis: none;
   font-stretch: ultra-condensed;
   font-variant: no-common-ligatures proportional-nums slashed-zero;
-  font-size: 4vw;
+  font-style: italic;
+  font-size: 80%;
   line-height: calc(4vw * 1.50);
   font-kerning: normal;
   text-rendering: geometricPrecision;
-  /*background: pink;*/
+  background-color: rgb(240, 234, 224);
 }
 
 ol {
@@ -328,4 +330,35 @@ p.stretch-para {
 
 .small {
   font-size: 80%;
+}
+
+/* Accessibility specific media queries go below. */
+
+/* 1. Dark mode (or light) depending on requirement. */
+@media screen and (prefers-color-scheme: dark) {
+	body {
+			background-color: #343434;
+			color: #fff;
+	}
+}
+
+ /* 2. Override animations for users with motion sickness or other vestibular disorders. */
+@media (prefers-reduced-motion: reduce) {
+	* {
+			animation-duration: 0.01ms !important;
+			animation-iteration-count: 1 !important;
+			transition-duration: 0.01ms !important;
+			scroll-behavior: auto !important;
+	}
+}
+
+/* 3. Acquired notched space and make sure iOS Safari uses only the available vertical height (100vh). */
+@supports(padding:max(0px)) {
+	body, header, footer {
+		padding-left: min(0vmin, env(safe-area-inset-left));
+		padding-right: min(0vmin, env(safe-area-inset-right));
+	}
+	body {
+		min-height: -webkit-fill-available;
+	}
 }
